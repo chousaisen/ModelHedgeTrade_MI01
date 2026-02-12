@@ -1,0 +1,146 @@
+
+//+------------------------------------------------------------------+
+//| 请用MQL5语言编写一个函数 1
+//+------------------------------------------------------------------+
+
+  输入值  
+  		1. double value
+  		2. double inputBegin,
+  		3. double inputEnd
+  		4. double outputBegin,
+  		5. double outputEnd
+  		
+  输出值
+  		outputBegin 和 outputEnd之间的对应值
+  		
+  要求
+       1. inputBegin和inputEnd作为坐标X轴的值，outputBegin和outputEnd作为坐标Y轴的值，有线性对应关系
+       2. inputBegin小于inputEnd，但是outputBegin可以大于outputEnd，也可以outputBegin小于outputEnd
+       3. 判断value在inputBegin和inputEnd之间，然后找到outBeing和outEnd之间的对应值作为输出值
+       4. 例外，当value在inputBegin和inputEnd之外时，小于inputBegin 输出outputBegin，大于inputEnd则输出outputEnd
+
+
+//+------------------------------------------------------------------+
+
+以下MQL5函数根据输入值的范围输出一定范围相对应的线性值，如果输出值非线性，
+为上抛物线，或下抛物线，应该如何修改的
+//+------------------------------------------------------------------+         
+double mapValue(double value, double inputBegin, double inputEnd, double outputBegin, double outputEnd, double acceleration = 1.0)
+{
+    // 确保inputBegin小于inputEnd
+    if (inputBegin >= inputEnd)
+    {
+        Print("Error: inputBegin must be less than inputEnd");
+        return 0.0;
+    }
+
+    // 如果value小于inputBegin，返回outputBegin
+    if (value <= inputBegin)
+    {
+        return outputBegin;
+    }
+    // 如果value大于inputEnd，返回outputEnd
+    else if (value >= inputEnd)
+    {
+        return outputEnd;
+    }
+    // 否则，计算非线性映射的值
+    else
+    {
+        // 计算输入范围的比例
+        double inputRange = inputEnd - inputBegin;
+        double outputRange = outputEnd - outputBegin;
+        
+        // 计算value在输入范围内的比例
+        double scale = (value - inputBegin) / inputRange;
+        
+        // 使用指数函数实现加速效果
+        scale = pow(scale, acceleration);
+        
+        // 返回映射到输出范围的值
+        return outputBegin + (scale * outputRange);
+    }
+}
+
+
+//+------------------------------------------------------------------+
+做一个函数来描述以上步骤3的弧线 
+   要求 
+      参数1   弧线的曲率 ，曲率越大，越向X轴靠近弯曲
+      参数2   X轴 的任意一点的值
+      返回    对应参数2X轴值的Y轴值
+   a,b,c,d为已知固定值
+   
+步骤1. 在一个坐标系内，Y轴取值a 到b，X轴取值c到d(a,b,c,d都是正值, a<b，c<d)
+步骤2. 连接 坐标(a,c)和 (b,d)为一条直线
+步骤3. 在 2 连接的直线下方(a,c)和 (b,d)点之间画一条弧线
+//+------------------------------------------------------------------+
+
+//+------------------------------------------------------------------+
+
+//+------------------------------------------------------------------+
+SELECT 
+count(*),sum(slopePips),sum(slopeProfitPips),sum(returnMaxPips),
+max(returnMaxPips),avg(slopePips),avg(slopeProfitPips),avg(returnMaxPips),avg(returnMaxRate)
+from SlopeList10 where slopePips>100 and WaveCount>2;
+
+
+
+//+------------------------------------------------------------------+
+//|  make range grid line
+//+------------------------------------------------------------------+
+
+请完善以下MQL5的功能函数,说明如下 
+
+   功能为上下震荡边界开始的价格网格做成。  
+   1. 计算从upperBreakLine上边界开始的网格价格，保存入upperGridLine数组
+   2. 计算从downBreakLine下边界开始的网格价格，保存入downGridLine数组 
+   3. upperBreakLine，downBreakLine为震荡的上下边界价格
+   4. startPips为最初的间隔距离，例  upperGridLine[0]=upperBreakLine-startPips*point;
+                                     downGridLine[0]=downBreakLine+startPips*point;
+   5. upperGridLine 数组的值范围upperBreakLine到downBreakLine
+   6. downBreakLine 数组的值范围downBreakLine到upperBreakLine
+   7. 网格间距增长为斐波那契数列，增长比例可调整，调整参数为growRate
+   8. 增长比例调整的逻辑部分单独为另一个函数，以便将来程序的模块化和可以调整
+
+void makeRangeGrid(int symbolIndex,
+                        double upperBreakLine,
+                        double downBreakLine,
+                        double &upperGridLine[],
+                        double &downGridLine[],
+                        double startPips,
+                        double growRate,
+                        double point){}
+                        
+                        
+//+------------------------------------------------------------------+
+//|  forceIndex 调整 pips
+//+------------------------------------------------------------------+
+写一个用指标iForce的值来线性调整获取pips的函数
+
+double getPipsByForce(double unitPips)
+
+
+
+interface CModelI
+  {
+      int        getOrderCount();             //get order count
+      double     getSymbolPrice();            //get model symbol price
+      double     getSymbolPoint();            //get model symbol point
+      double     getProfitPips();             //get model profit pips
+      double     getAvgPrice();               //get grid model avg price(all orders) 
+      double     getLot();
+      bool       closeModel();     //close model
+  }
+
+
+
+参考上传的MQL5程序文件的类和结构，完善CRiskPairInput类，功能如下
+
+1.从数据库表HedgePairList中取得数据，条件如下	
+	1.1 表  modelKind字段和 CRiskPairInput类变量 的modelKind相等
+	
+2. 用数据库表取得的数据更新CRiskPairInput类的hedgePairSet和hedgePairIds  
+	2.1 判断表取得数据一览的  mOrderId字段 和 hash变量 hedgePairSet的key 是否匹配
+	2.2 如果匹配，用该行的数据更新 hedgePairSet的 CHedgePair元素的 hOrderId和	hOrderStatus；
+	2.3 如果不匹配，则hash变量hedgePairSet中新增加key是mOrderId的CHedgePair元素，hedgePairIds变量也插入新的mOrderId元素    
