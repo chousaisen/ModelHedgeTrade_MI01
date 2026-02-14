@@ -1,1 +1,197 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼†††††††††††††††††††††††䌠楆瑬牥汃獯づ䤱洮桱簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍瀣潲数瑲⁹敶獲潩⁮†ㄢ〮∰਍਍椣据畬敤∠⸮ⸯ⼮⸮猯慨敲䤯摮捩瑡牯䌯效摡牥洮桱ഢ⌊湩汣摵⁥⸢⼮⸮ⸯ⼮潣浭䌯浯畆据⸲煭≨਍椣据畬敤∠⸮䌯潍敤䙬汩整⹲煭≨਍਍汣獡⁳䙃汩整䍲潬敳㄰›異汢捩䌠潍敤䙬汩整⁲਍ൻ ††瀠扵楬㩣਍†††††††††††䙃汩整䍲潬敳㄰⤨഻ ††††††††††縠䙃汩整䍲潬敳㄰⤨※††††††††††ഠ †††††††⼯汣獯⁥楦瑬牥洨摯汥ഩ †††††††潢汯†挠潬敳楆瑬牥䌨潍敤䥬‪潭敤⥬※††††††††††††††ഠ †††††††⼯敤慴汩映汩整獲樨摵敧洠摯汥ഩ †††††††潢汯†挠潬敳楆瑬牥㄰䌨潍敤䥬‪潭敤⥬഻ †††††††潢汯†挠潬敳楆瑬牥㈰䌨潍敤䥬‪潭敤⥬഻ †††††††⼯汣獯⁥楦瑬牥漨摲牥ഩ †††††††潢汯†挠潬敳楆瑬牥䌨牏敤⩲漠摲牥㬩਍†††††††⼠搯瑥楡⁬楦瑬牥⡳番杤⁥牯敤⥲਍†††††††戠潯⁬†汣獯䙥汩整ひ⠱佃摲牥‪牯敤⥲഻紊഻ ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†楦瑬牥琠敨挠潬敳洠摯汥਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潢汯䌠楆瑬牥汃獯づ㨱挺潬敳楆瑬牥䌨潍敤䥬‪潭敤⥬਍ൻഊ †晩ℨ則䑉䍟佌䕓䙟䝌爩瑥牵⁮慦獬㭥਍†⼠爯瑥牵⁮牴敵഻ †⼯晩琨楨⹳敧䥴摮桓牡⡥⸩敧側楲散桃卬楨瑦敌敶⡬潭敤⹬敧却浹潢䥬摮硥⤨㸩⤲敲畴湲映污敳഻ †਍†⼠椯⡦桴獩朮瑥效杤卥慨敲⤨朮瑥效杤䝥潲灵潐汯⤨朮瑥效杤剥瑡⡥㸩⸰⤹敲畴湲琠畲㭥਍†⼠椯⡦桴獩朮瑥效杤卥慨敲⤨朮瑥效杤䝥潲灵潐汯⤨朮瑥效杤剥瑡⡥㰩⸰⤷敲畴湲映污敳഻ †湩⁴祳扭汯湉敤㵸潭敤⹬敧却浹潢䥬摮硥⤨഻ †䡃摥敧片畯⩰栠摥敧潐汯琽楨⹳敧䡴摥敧桓牡⡥⸩敧䡴摥敧片畯偰潯⡬㬩਍†搠畯汢⁥敨杤剥瑡㵥敨杤健潯⹬敧䡴摥敧慒整⤨※†਍†椠⡦敨杤剥瑡㹥⸰ㄹ⤸⁻††††ഠ ††猠牴湩⁧祳扭汯挽浯畆据愮摤畓晦硩匨䵙佂彌䥌呓獛浹潢䥬摮硥⥝഻ ††椠瑮琠敲摮汆㵧潣䙭湵㉣朮瑥慓呲敲摮汆⡧祳扭汯㬩†ഠ ††椠⡦牴湥䙤杬㴽‱籼琠敲摮汆㵧㐽笩਍††††椠⡦潭敤⹬敧呴慲敤祔数⤨㴽剏䕄归奔䕐卟䱅⥌敲畴湲琠畲㭥਍†††ൽ ††攠獬⁥晩琨敲摮汆㵧㈽簠⁼牴湥䙤杬㴽⤳ൻ ††††晩洨摯汥朮瑥牔摡呥灹⡥㴩伽䑒剅呟偙彅啂⥙敲畴湲琠畲㭥਍†††⁽†਍†††⼯敲畴湲映污敳഻ †ൽ †਍†⼠椯⡦桴獩挮敬牡效杤䱥瑯洨摯汥栬摥敧潐汯㸩⤰敲畴湲琠畲㭥਍†ഠ †敲畴湲映污敳഻ഊഊ †潤扵敬猠浵畊灭楐獰琽楨⹳敧䥴摮桓牡⡥⸩敧側楲散桃卬浵摅敧楄晦楐獰洨摯汥朮瑥祓扭汯湉敤⡸⤩഻ †潤扵敬猠浵摅敧慒整琽楨⹳敧䥴摮桓牡⡥⸩敧側楲散桃卬浵摅敧慒整洨摯汥朮瑥祓扭汯湉敤⡸⤩഻ †潤扵敬攠瑸湥剤瑡㵥慍桴扁⡳猨浵畊灭楐獰ㄯ〰⬩畳䕭杤剥瑡⥥഻ †晩攨瑸湥剤瑡㱥〲爩瑥牵⁮牴敵※†਍†ഠ †⼯敲畴湲映污敳഻ †⼯晩ℨ桴獩挮潬敳楆瑬牥㄰洨摯汥⤩敲畴湲映污敳※†਍†⼠椯⡦琡楨⹳汣獯䙥汩整ひ⠲潭敤⥬爩瑥牵⁮慦獬㭥ഠ †⼯晩ℨ桴獩挮潬敳楆瑬牥㌰洨摯汥⤩敲畴湲映污敳഻ †敲畴湲映污敳഻ഊ紊਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼映汩整⁲桴⁥汣獯⁥潭敤൬⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ戊潯⁬䙃汩整䍲潬敳㄰㨺汣獯䙥汩整ひ⠱䵃摯汥⩉洠摯汥ഩ笊਍਍†氠杯慄慴愮摤敄畢䥧普⡯㰢䙃汩整䍲潬敳㄰洭摯汥∾㬩਍਍†䔠啎彍呓呁⁅慢摮瑓瑡獵琽楨⹳敧䥴摮桓牡⡥⸩敧䉴湡卤慴畴⡳潭敤⹬敧却浹潢䥬摮硥⤨䤬䑎䉟乁彄噌⤰഻ †晩洨摯汥朮瑥牔摡呥灹⡥㴩伽䑒剅呟偙彅啂⥙ൻ ††椠⡦慢摮瑓瑡獵㴽呓呁彅剂䅅佋呕啟⥐ൻ ††††潬䑧瑡⹡摡䑤扥杵湉潦∨爼瑥牵㹮慦獬㱥䌯楆瑬牥汃獯づⴱ潭敤㹬⤢഻ ††††敲畴湲映污敳഻ ††素਍†素ഠ †汥敳椠⡦潭敤⹬敧呴慲敤祔数⤨㴽剏䕄归奔䕐卟䱅⥌ൻ ††椠⡦慢摮瑓瑡獵㴽呓呁彅剂䅅佋呕䑟坏⥎ൻ ††††潬䑧瑡⹡摡䑤扥杵湉潦∨爼瑥牵㹮慦獬㱥䌯楆瑬牥汃獯づⴱ潭敤㹬⤢഻ ††††敲畴湲映污敳഻ ††素†ഠ †⁽†਍†氠杯慄慴愮摤敄畢䥧普⡯㰢敲畴湲琾畲㱥䌯楆瑬牥汃獯づⴱ潭敤㹬⤢഻ †敲畴湲琠畲㭥਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†楦瑬牥琠敨挠潬敳洠摯汥਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潢汯䌠楆瑬牥汃獯づ㨱挺潬敳楆瑬牥㈰䌨潍敤䥬‪潭敤⥬਍ൻ †潬䑧瑡⹡摡䑤扥杵湉潦∨䌼楆瑬牥汃獯づⴲ潭敤㹬⤢഻ †湩⁴祳扭汯湉敤㵸潭敤⹬敧却浹潢䥬摮硥⤨഻ †䥃摮捩瑡牯桓牡⩥椠摮桓牡㵥桴獩朮瑥湉卤慨敲⤨഻ †潤扵敬猠牴湥瑧剨瑡㵥湩卤慨敲朮瑥瑓敲杮桴慒整猨浹潢䥬摮硥㬩਍†搠畯汢⁥摥敧慒整椽摮桓牡⹥敧䕴杤剥瑡⡥祳扭汯湉敤⥸഻ †潤扵敬猠浵慒整猽牴湥瑧剨瑡⭥摥敧慒整※†਍†਍†搠畯汢⁥汣獯䑥晩䕦瑸湥剤瑡㵥則䑉䍟佌䕓䑟䙉彆塅䕔䑎䉟䝅义剟呁㭅਍†ഠ †潤扵敬洠摯汥牐景瑩洽摯汥朮瑥牐景瑩⤨※†਍†搠畯汢⁥潭敤䍬潬敳牐景瑩洽摯汥朮瑥汃獯健潲楦側灩⡳㬩਍†搠畯汢⁥摥敧楄晦楐獰椽摮桓牡⹥敧側楲散桃卬浵摅敧楄晦楐獰猨浹潢䥬摮硥㬩਍†ഠ †潤扵敬猠浵畊灭楐獰椽摮桓牡⹥敧側楲散桃卬浵摅敧楄晦楐獰猨浹潢䥬摮硥㬩਍†搠畯汢⁥畳䕭杤剥瑡㵥湩卤慨敲朮瑥牐捩䍥汨畓䕭杤剥瑡⡥祳扭汯湉敤⥸※††਍†ഠ †⼯晩椨摮桓牡⹥敧側楲散桃卬楨瑦敌敶⡬祳扭汯湉敤⥸㈾簠⁼慍桴扁⡳猨浵畊灭楐獰ㄯ〰⬩畳䕭杤剥瑡⥥㠾爩瑥牵⁮慦獬㭥਍†椠⡦桴獩朮瑥效杤卥慨敲⤨朮瑥效杤䝥潲灵潐汯⤨朮瑥效杤剥瑡⡥㸩⸰㤹爩瑥牵⁮牴敵഻ †晩琨楨⹳敧䡴摥敧桓牡⡥⸩敧䡴摥敧片畯偰潯⡬⸩敧䡴摥敧慒整⤨〼㘮⤶敲畴湲映污敳഻ †਍†搠畯汢⁥瑳敲杮桴慒整㴲慍桴扁⡳畳䩭浵偰灩⽳〱⤰഻ †潤扵敬攠瑸湥剤瑡㵥慍桴扁⡳猨浵畊灭楐獰ㄯ〰⬩畳䕭杤剥瑡⥥䜭䥒彄䱃协彅䥄䙆䕟员久彄䕂䥇彎䅒䕔഻ †਍†椠⡦瑳敲杮桴慒整㸲⤳ൻ ††洠摯汥汃獯健潲楦㵴洨摯汥汃獯健潲楦⩴則䑉䍟佌䕓䉟䕒䭁䕟员久彄䅒䕔㬩਍†††晩攨瑸湥剤瑡㹥⤱ൻ ††††硥整摮慒整挽浯畆据攮瑸湥噤污敵攨瑸湥剤瑡ⱥ則䑉䍟佌䕓䑟䙉彆塅䕔䑎偟啌当䅒䕔㬩਍††††洠摯汥汃獯健潲楦㵴潭敤䍬潬敳牐景瑩攪瑸湥剤瑡㭥਍†††⁽†਍†素਍਍†椠⡦歲敥潌⹧敤畢偧牥潩⡤〹ㄹ㘬⤰笩†ഠ ††⼠爯敫䱥杯眮楲整潌⡧潣䙭湵⹣敧䑴瑡彥奙奙䵍䑄䡈䵍⠲⬩潬呧浥Ɒ搢扥杵潌で∱㬩਍†††⼯牰湩晴氨杯敔灭㬩਍†††慤整楴敭琠㴱楔敭畃牲湥⡴㬩਍†††潤扵敬愠〽഻ †ൽഊ †潬䑧瑡⹡摡䑤扥杵湉潦∨洼摯汥摉∾⬠洠摯汥朮瑥潍敤䥬⡤ഩ †††††††††††††‫㰢畳䩭浵偰灩㹳•‫瑓楲杮潆浲瑡∨⸥昲Ⱒ畳䩭浵偰灩⥳†††††††††††††††਍†††††††††††††⬠∠洼摯汥牐景瑩∾⬠匠牴湩䙧牯慭⡴┢㈮≦洬摯汥牐景瑩ഩ †††††††††††††‫㰢潭敤䍬潬敳牐景瑩∾⬠匠牴湩䙧牯慭⡴┢㈮≦洬摯汥汃獯健潲楦⥴਍†††††††††††††⬠∠攼瑸湥剤瑡㹥•‫瑓楲杮潆浲瑡∨⸥昲Ⱒ硥整摮慒整⤩഻ഊ †潢汯爠瑥慖畬㵥牴敵※††ഠ †晩洨摯汥牐景瑩洼摯汥汃獯健潲楦⥴ൻ ††椠⡦畳䩭浵偰灩㹳〱‰☦洠摯汥朮瑥牔摡呥灹⡥㴩伽䑒剅呟偙彅啂⥙⁻††††਍††††爠瑥慖畬㵥慦獬㭥਍†††敽獬⁥晩猨浵畊灭楐獰ⴼ〱‰☦洠摯汥朮瑥牔摡呥灹⡥㴩伽䑒剅呟偙彅䕓䱌笩਍††††爠瑥慖畬㵥慦獬㭥਍†††ൽ †ൽ †਍†氠杯慄慴愮摤敄畢䥧普⡯㰢敲畴湲∾爫瑥慖畬⭥㰢䌯楆瑬牥汃獯づⴲ潭敤㹬⤢഻ †਍†爠瑥牵⁮敲噴污敵※†਍†ഠ紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼映汩整⁲桴⁥汣獯⁥牯敤൲⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ戊潯⁬䙃汩整䍲潬敳㄰㨺汣獯䙥汩整⡲佃摲牥‪牯敤⥲਍ൻ †⼯晩ℨ桴獩挮潬敳楆瑬牥㄰漨摲牥⤩敲畴湲映污敳※†਍†爠瑥牵⁮牴敵഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼映汩整⁲桴⁥汣獯⁥牯敤൲⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ戊潯⁬䙃汩整䍲潬敳㄰㨺汣獯䙥汩整ひ⠱佃摲牥‪牯敤⥲਍ൻ †潬䑧瑡⹡摡䑤扥杵湉潦∨䌼楆瑬牥汃獯づⴱ牯敤㹲⤢഻ †久䵕卟䅔䕔戠湡卤慴畴㵳桴獩朮瑥湉卤慨敲⤨朮瑥慂摮瑓瑡獵漨摲牥朮瑥祓扭汯湉敤⡸Ⱙ义彄䅂䑎䱟ざ㬩਍†椠⡦牯敤⹲敧佴摲牥祔数⤨㴽剏䕄归奔䕐䉟奕笩਍†††晩戨湡卤慴畴㵳匽䅔䕔䉟䕒䭁問彔偕笩਍††††氠杯慄慴愮摤敄畢䥧普⡯㰢敲畴湲显污敳⼼䙃汩整䍲潬敳㄰漭摲牥∾㬩਍††††爠瑥牵⁮慦獬㭥਍†††ൽ †⁽਍†攠獬⁥晩漨摲牥朮瑥牏敤呲灹⡥㴩伽䑒剅呟偙彅䕓䱌笩਍†††晩戨湡卤慴畴㵳匽䅔䕔䉟䕒䭁問彔佄乗笩਍††††氠杯慄慴愮摤敄畢䥧普⡯㰢敲畴湲显污敳⼼䙃汩整䍲潬敳㄰漭摲牥∾㬩਍††††爠瑥牵⁮慦獬㭥਍†††⁽†਍†素†ഠ †潬䑧瑡⹡摡䑤扥杵湉潦∨爼瑥牵㹮牴敵⼼䙃汩整䍲潬敳㄰漭摲牥∾㬩਍†爠瑥牵⁮牴敵഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼挠慬獳挠湯瑳畲瑣牯†ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊楆瑬牥汃獯づ㨱䌺楆瑬牥汃獯づ⠱笩ൽ䌊楆瑬牥汃獯づ㨱縺䙃汩整䍲潬敳㄰⤨ൻ紊਍�
+//+------------------------------------------------------------------+
+//|                                                CFilterClose01I.mqh |
+//+------------------------------------------------------------------+
+#property version   "1.00"
+
+#include "../../../share/Indicator/CHeader.mqh"
+#include "../../../comm/ComFunc2.mqh"
+#include "../CModelFilter.mqh"
+
+class CFilterClose01: public CModelFilter 
+{
+      public:
+                      CFilterClose01();
+                      ~CFilterClose01();                      
+               //close filter(model)
+               bool   closeFilter(CModelI* model);                              
+               //detail filters(judge model)
+               bool   closeFilter01(CModelI* model);
+               bool   closeFilter02(CModelI* model);
+               //close filter(order)
+               bool   closeFilter(COrder* order);
+               //detail filters(judge order)
+               bool   closeFilter01(COrder* order);
+};
+  
+//+------------------------------------------------------------------+
+//|  filter the close model
+//+------------------------------------------------------------------+
+bool CFilterClose01::closeFilter(CModelI* model)
+{
+
+   if(!GRID_CLOSE_FLG)return false;
+   //return true;
+   //if(this.getIndShare().getPriceChlShiftLevel(model.getSymbolIndex())>2)return false;
+   
+   //if(this.getHedgeShare().getHedgeGroupPool().getHedgeRate()>0.9)return true;
+   //if(this.getHedgeShare().getHedgeGroupPool().getHedgeRate()<0.7)return false;
+   int symbolIndex=model.getSymbolIndex();
+   CHedgeGroup* hedgePool=this.getHedgeShare().getHedgeGroupPool();
+   double hedgeRate=hedgePool.getHedgeRate();   
+   if(hedgeRate>0.918){          
+      string symbol=comFunc.addSuffix(SYMBOL_LIST[symbolIndex]);
+      int trendFlg=comFunc2.getSarTrendFlg(symbol);   
+      if(trendFlg==1 || trendFlg==4){
+         if(model.getTradeType()==ORDER_TYPE_SELL)return true;
+      }
+      else if(trendFlg==2 || trendFlg==3){
+         if(model.getTradeType()==ORDER_TYPE_BUY)return true;
+      }   
+      //return false;
+   }
+   
+   //if(this.clearHedgeLot(model,hedgePool)>0)return true;
+   
+   return false;
+
+
+   double sumJumpPips=this.getIndShare().getPriceChlSumEdgeDiffPips(model.getSymbolIndex());
+   double sumEdgeRate=this.getIndShare().getPriceChlSumEdgeRate(model.getSymbolIndex());
+   double extendRate=MathAbs((sumJumpPips/100)+sumEdgeRate);
+   if(extendRate<20)return true;   
+   
+   //return false;
+   //if(!this.closeFilter01(model))return false;   
+   //if(!this.closeFilter02(model))return false; 
+   //if(!this.closeFilter03(model))return false;
+   return false;
+
+}
+//+------------------------------------------------------------------+
+//|  filter the close model
+//+------------------------------------------------------------------+
+bool CFilterClose01::closeFilter01(CModelI* model)
+{
+
+   logData.addDebugInfo("<CFilterClose01-model>");
+
+   ENUM_STATE bandStatus=this.getIndShare().getBandStatus(model.getSymbolIndex(),IND_BAND_LV0);
+   if(model.getTradeType()==ORDER_TYPE_BUY){
+      if(bandStatus==STATE_BREAKOUT_UP){
+         logData.addDebugInfo("<return>false</CFilterClose01-model>");
+         return false;
+      }
+   } 
+   else if(model.getTradeType()==ORDER_TYPE_SELL){
+      if(bandStatus==STATE_BREAKOUT_DOWN){
+         logData.addDebugInfo("<return>false</CFilterClose01-model>");
+         return false;
+      }   
+   }   
+   logData.addDebugInfo("<return>true</CFilterClose01-model>");
+   return true;
+}
+
+//+------------------------------------------------------------------+
+//|  filter the close model
+//+------------------------------------------------------------------+
+bool CFilterClose01::closeFilter02(CModelI* model)
+{
+   logData.addDebugInfo("<CFilterClose02-model>");
+   int symbolIndex=model.getSymbolIndex();
+   CIndicatorShare* indShare=this.getIndShare();
+   double strengthRate=indShare.getStrengthRate(symbolIndex);
+   double edgeRate=indShare.getEdgeRate(symbolIndex);
+   double sumRate=strengthRate+edgeRate;   
+  
+   double closeDiffExtendRate=GRID_CLOSE_DIFF_EXTEND_BEGIN_RATE;
+   
+   double modelProfit=model.getProfit();   
+   double modelCloseProfit=model.getCloseProfitPips();
+   double edgeDiffPips=indShare.getPriceChlSumEdgeDiffPips(symbolIndex);
+   
+   double sumJumpPips=indShare.getPriceChlSumEdgeDiffPips(symbolIndex);
+   double sumEdgeRate=indShare.getPriceChlSumEdgeRate(symbolIndex);     
+   
+   //if(indShare.getPriceChlShiftLevel(symbolIndex)>2 || MathAbs((sumJumpPips/100)+sumEdgeRate)>8)return false;
+   if(this.getHedgeShare().getHedgeGroupPool().getHedgeRate()>0.99)return true;
+   if(this.getHedgeShare().getHedgeGroupPool().getHedgeRate()<0.66)return false;
+   
+   double strengthRate2=MathAbs(sumJumpPips/100);
+   double extendRate=MathAbs((sumJumpPips/100)+sumEdgeRate)-GRID_CLOSE_DIFF_EXTEND_BEGIN_RATE;
+   
+   if(strengthRate2>3){
+      modelCloseProfit=(modelCloseProfit*GRID_CLOSE_BREAK_EXTEND_RATE);
+      if(extendRate>1){
+         extendRate=comFunc.extendValue(extendRate,GRID_CLOSE_DIFF_EXTEND_PLUS_RATE);
+         modelCloseProfit=modelCloseProfit*extendRate;
+      }   
+   }
+
+   if(rkeeLog.debugPeriod(9091,60)){   
+      //rkeeLog.writeLog(comFunc.getDate_YYYYMMDDHHMM2()+logTemp,"debugLog01");
+      //printf(logTemp);
+      datetime t1=TimeCurrent();
+      double a=0;
+   }
+
+   logData.addDebugInfo("<modelId>" + model.getModelId()
+                           + "<sumJumpPips>" + StringFormat("%.2f",sumJumpPips)                              
+                           + "<modelProfit>" + StringFormat("%.2f",modelProfit)
+                           + "<modelCloseProfit>" + StringFormat("%.2f",modelCloseProfit)
+                           + "<extendRate>" + StringFormat("%.2f",extendRate));
+
+   bool retValue=true;      
+   if(modelProfit<modelCloseProfit){
+      if(sumJumpPips>100 && model.getTradeType()==ORDER_TYPE_BUY){         
+         retValue=false;
+      }else if(sumJumpPips<-100 && model.getTradeType()==ORDER_TYPE_SELL){
+         retValue=false;
+      }
+   }
+   
+   logData.addDebugInfo("<return>"+retValue+"</CFilterClose02-model>");
+   
+   return retValue;   
+   
+}
+
+//+------------------------------------------------------------------+
+//|  filter the close order
+//+------------------------------------------------------------------+
+bool CFilterClose01::closeFilter(COrder* order)
+{
+   //if(!this.closeFilter01(order))return false;   
+   return true;
+}
+
+//+------------------------------------------------------------------+
+//|  filter the close order
+//+------------------------------------------------------------------+
+bool CFilterClose01::closeFilter01(COrder* order)
+{
+   logData.addDebugInfo("<CFilterClose01-order>");
+   ENUM_STATE bandStatus=this.getIndShare().getBandStatus(order.getSymbolIndex(),IND_BAND_LV0);
+   if(order.getOrderType()==ORDER_TYPE_BUY){
+      if(bandStatus==STATE_BREAKOUT_UP){
+         logData.addDebugInfo("<return>false</CFilterClose01-order>");
+         return false;
+      }
+   } 
+   else if(order.getOrderType()==ORDER_TYPE_SELL){
+      if(bandStatus==STATE_BREAKOUT_DOWN){
+         logData.addDebugInfo("<return>false</CFilterClose01-order>");
+         return false;
+      }   
+   }   
+   logData.addDebugInfo("<return>true</CFilterClose01-order>");
+   return true;
+}
+
+//+------------------------------------------------------------------+
+//|  class constructor   
+//+------------------------------------------------------------------+
+CFilterClose01::CFilterClose01(){}
+CFilterClose01::~CFilterClose01(){
+}
+ 

@@ -1,1 +1,57 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼††††††††††††††††††††††††䌠慄慴慢敳湉潦洮桱簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍瀣潲数瑲⁹潣祰楲桧⁴∢਍瀣潲数瑲⁹楬歮†††栢瑴獰⼺眯睷洮汱⸵潣≭਍瀣潲数瑲⁹敶獲潩⁮†ㄢ〮∰਍਍椣据畬敤㰠敇敮楲屣牁慲䱹獩⹴煭㹨਍਍汣獡⁳䑃瑡扡獡䥥普筯਍†瀠楲慶整›†਍†††䅃牲祡楌瑳甼潬杮‾††††楲歳扄敋䱹獩㭴†††††਍†瀠扵楬㩣਍††††††††††††䑃瑡扡獡䥥普⡯㬩਍††††††††††††䍾慄慴慢敳湉潦⤨※਍਍†⼠ 湩瑩†††††††††਍†瘠楯⁤††††††††椠楮⡴㬩਍†ഠ †䅃牲祡楌瑳甼潬杮⨾††敧剴獩䑫䭢祥楌瑳⤨഻ †潶摩†††††††††摡剤獩䑫䭢祥用潬杮欠祥㬩਍†戠潯⁬††††††††挠湯慴湩剳獩䑫䭢祥用潬杮欠祥㬩਍†瘠楯⁤††††††††挠敬牡楒歳扄敋䱹獩⡴㬩਍†††਍㭽਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼湩瑩慩楬敺琠敨挠慬獳਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠慄慴慢敳湉潦㨺湩瑩⤨ൻ紊਍਍䅃牲祡楌瑳甼潬杮⨾䌠慄慴慢敳湉潦㨺敧剴獩䑫䭢祥楌瑳⤨ൻ †敲畴湲☠桴獩爮獩䑫䭢祥楌瑳഻紊਍਍潶摩䌠慄慴慢敳湉潦㨺摡剤獩䑫䭢祥用潬杮欠祥笩਍†琠楨⹳楲歳扄敋䱹獩⹴摁⡤敫⥹഻紊਍਍潢汯䌠慄慴慢敳湉潦㨺潣瑮楡獮楒歳扄敋⡹汵湯⁧敫⥹ൻ †敲畴湲琠楨⹳楲歳扄敋䱹獩⹴潃瑮楡獮欨祥㬩਍ൽഊ瘊楯⁤䑃瑡扡獡䥥普㩯挺敬牡楒歳扄敋䱹獩⡴笩਍†琠楨⹳楲歳扄敋䱹獩⹴汃慥⡲㬩਍ൽഊഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯挠慬獳挠湯瑳畲瑣牯⼠搠獥牴捵潴൲⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊慄慴慢敳湉潦㨺䑃瑡扡獡䥥普⡯笩਍ൽഊ䌊慄慴慢敳湉潦㨺䍾慄慴慢敳湉潦⤨ൻ紊਍
+//+------------------------------------------------------------------+
+//|                                                  CDatabaseInfo.mqh |
+//+------------------------------------------------------------------+
+#property copyright ""
+#property link      "https://www.mql5.com"
+#property version   "1.00"
+
+#include <Generic\ArrayList.mqh>
+
+class CDatabaseInfo{
+   private:   
+      CArrayList<ulong>         riskDbKeyList;          
+   public:
+                        CDatabaseInfo();
+                        ~CDatabaseInfo(); 
+
+   // init                  
+   void                  init();
+   
+   CArrayList<ulong>*    getRiskDbKeyList();
+   void                  addRiskDbKey(ulong key);
+   bool                  containsRiskDbKey(ulong key);
+   void                  clearRiskDbKeyList();
+      
+};
+
+//+------------------------------------------------------------------+
+//| initialize the class
+//+------------------------------------------------------------------+
+void CDatabaseInfo::init(){
+}
+
+CArrayList<ulong>* CDatabaseInfo::getRiskDbKeyList(){
+   return &this.riskDbKeyList;
+}
+
+void CDatabaseInfo::addRiskDbKey(ulong key){
+   this.riskDbKeyList.Add(key);
+}
+
+bool CDatabaseInfo::containsRiskDbKey(ulong key){
+   return this.riskDbKeyList.Contains(key);
+}
+
+void CDatabaseInfo::clearRiskDbKeyList(){
+   this.riskDbKeyList.Clear();
+}
+
+
+//+------------------------------------------------------------------+
+//| class constructor / destructor
+//+------------------------------------------------------------------+
+CDatabaseInfo::CDatabaseInfo(){
+}
+
+CDatabaseInfo::~CDatabaseInfo(){
+}

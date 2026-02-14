@@ -1,1 +1,84 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼†††††††††††††††††††††††䌠楆瑬牥硅整摮㄰⹉煭⁨ർ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⌊牰灯牥祴瘠牥楳湯†∠⸱〰ഢഊ⌊湩汣摵⁥⸢⼮䵃摯汥湉楤慣潴䙲汩整⹲煭≨਍椣据畬敤∠⸮ⸯ⼮⸮振浯⽭潃䙭湵㉣洮桱ഢഊ挊慬獳䌠楆瑬牥硅整摮㄰›異汢捩䌠潍敤䥬摮捩瑡牯楆瑬牥ഠ笊਍†††異汢捩ഺ ††††††††††䌠楆瑬牥硅整摮㄰⤨഻ ††††††††††縠䙃汩整䕲瑸湥つ⠱㬩†††††††††††਍††潢汯†††††††硥整摮楆瑬牥䌨潍敤䥬‪潭敤⥬഻紊഻ ഠഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†楦瑬牥琠敨攠瑸湥⁤潭敤൬⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ戊潯⁬䙃汩整䕲瑸湥つ㨱攺瑸湥䙤汩整⡲䵃摯汥⩉洠摯汥笩਍†ഠ †潬䑧瑡⹡摡䑤扥杵湉潦∨䌼楆瑬牥硅整摮㄰∾㬩਍†椠瑮猠浹潢䥬摮硥洽摯汥朮瑥祓扭汯湉敤⡸㬩਍†䌠效杤䝥潲灵‪敨杤健潯㵬桴獩朮瑥效杤卥慨敲⤨朮瑥效杤䝥潲灵潐汯⤨഻ †潤扵敬栠摥敧慒整栽摥敧潐汯朮瑥效杤剥瑡⡥㬩†ഠ †晩栨摥敧慒整〾㘮㠱笩††ഠ ††猠牴湩⁧祳扭汯挽浯畆据愮摤畓晦硩匨䵙佂彌䥌呓獛浹潢䥬摮硥⥝഻ ††椠瑮琠敲摮汆㵧潣䙭湵㉣朮瑥慓呲敲摮汆⡧祳扭汯㬩†ഠ ††椠⡦牴湥䙤杬㴽‱籼琠敲摮汆㵧㐽笩਍††††椠⡦潭敤⹬敧呴慲敤祔数⤨㴽剏䕄归奔䕐䉟奕爩瑥牵⁮慦獬㭥਍†††ൽ ††攠獬⁥晩琨敲摮汆㵧㈽簠⁼牴湥䙤杬㴽⤳ൻ ††††晩洨摯汥朮瑥牔摡呥灹⡥㴩伽䑒剅呟偙彅䕓䱌爩瑥牵⁮慦獬㭥਍†††⁽††ഠ ††爠瑥牵⁮牴敵഻ †ൽ †਍†搠畯汢⁥畣䡲摥敧潌㵴桴獩漮数䡮摥敧潌⡴潭敤ⱬ敨杤健潯⥬※†਍†椠⡦畣䡲摥敧潌㱴〽爩瑥牵⁮慦獬㭥†ഠ †਍†搠畯汢⁥畳䩭浵偰灩㵳桴獩朮瑥湉卤慨敲⤨朮瑥牐捩䍥汨畓䕭杤䑥晩偦灩⡳潭敤⹬敧却浹潢䥬摮硥⤨㬩਍†⼠搯畯汢⁥畳䕭杤剥瑡㵥桴獩朮瑥湉楤慣潴卲慨敲⤨朮瑥牐捩䍥汨畓䕭杤剥瑡⡥潭敤⹬敧却浹潢䥬摮硥⤨㬩††††ഠ †⼯潤扵敬猠浵摁番瑳摅敧慒整䴽瑡䅨獢⠨畳䩭浵偰灩⽳〱⤰猫浵摅敧慒整㬩†ഠ †਍†椠⡦慍桴扁⡳畳䩭浵偰灩⥳ㄾ〰爩瑥牵⁮慦獬㭥਍†ഠ †਍†戠潯⁬摥敧牂慥䙫杬‽琠楨⹳摥敧牂慥呫湥⡤潭敤⹬敧却浹潢䥬摮硥⤨ബ †††††††††††洠摯汥朮瑥牔摡呥灹⡥Ⱙ਍††††††††††††則䑉䕟员久い弱䥆呌剅䕟䝄彅义䕄ⱘ਍††††††††††††則䑉䕟员久い弱䅍彘䑅䕇剟呁ⱅ਍††††††††††††則䑉䕟员久い弱䥌䥍彔剂彋䥐卐㬩††ഠ †਍†椠⡦歲敥潌⹧敤畢偧牥潩⡤ ☦攠杤䉥敲歡汆⥧ൻ ††戠潯⁬整瑳㴱牴敵഻ †⁽†਍†氠杯慄慴愮摤敄畢䥧普⡯㰢敲畴湲∾⬠攠杤䉥敲歡汆⁧‫㰢䌯楆瑬牥硅整摮㄰∾㬩਍†ഠ †晩攨杤䉥敲歡汆⥧ൻ †਍†††潤扵敬猠浵畊灭楐獰琽楨⹳敧䥴摮桓牡⡥⸩敧側楲散桃卬浵摅敧楄晦楐獰洨摯汥朮瑥祓扭汯湉敤⡸⤩഻ ††搠畯汢⁥畳䕭杤剥瑡㵥桴獩朮瑥湉卤慨敲⤨朮瑥牐捩䍥汨畓䕭杤剥瑡⡥潭敤⹬敧却浹潢䥬摮硥⤨㬩਍†ഠ ††搠畯汢⁥畳剭瑡㵥畳䩭浵偰灩⽳〱⬰畳䕭杤剥瑡㭥਍†††਍†††久䵕佟䑒剅呟偙⁅祴数洽摯汥朮瑥牔摡呥灹⡥㬩਍†††晩琨灹㵥伽䑒剅呟偙彅䕓䱌☠…畳剭瑡㹥〱爩瑥牵⁮慦獬㭥਍†††汥敳椠⡦祴数㴽剏䕄归奔䕐䉟奕☠…畳剭瑡㱥ㄭ⤰敲畴湲映污敳഻ ††爠瑥牵⁮牴敵※†਍†素਍†ഠ ††ഠ †敲畴湲攠杤䉥敲歡汆㭧਍ൽഊഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†汣獡⁳潣獮牴捵潴⁲†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䙃汩整䕲瑸湥つ㨱䌺楆瑬牥硅整摮㄰⤨絻਍䙃汩整䕲瑸湥つ㨱縺䙃汩整䕲瑸湥つ⠱笩਍ൽ 
+//+------------------------------------------------------------------+
+//|                                                CFilterExtend01I.mqh |
+//+------------------------------------------------------------------+
+#property version   "1.00"
+
+#include "../CModelIndicatorFilter.mqh"
+#include "../../../comm/ComFunc2.mqh"
+
+class CFilterExtend01: public CModelIndicatorFilter 
+{
+      public:
+                      CFilterExtend01();
+                      ~CFilterExtend01();                      
+    bool              extendFilter(CModelI* model);
+};
+  
+
+//+------------------------------------------------------------------+
+//|  filter the extend model
+//+------------------------------------------------------------------+
+bool CFilterExtend01::extendFilter(CModelI* model){
+   
+   logData.addDebugInfo("<CFilterExtend01>");
+   int symbolIndex=model.getSymbolIndex();
+   CHedgeGroup* hedgePool=this.getHedgeShare().getHedgeGroupPool();
+   double hedgeRate=hedgePool.getHedgeRate();   
+   if(hedgeRate>0.618){     
+      string symbol=comFunc.addSuffix(SYMBOL_LIST[symbolIndex]);
+      int trendFlg=comFunc2.getSarTrendFlg(symbol);   
+      if(trendFlg==1 || trendFlg==4){
+         if(model.getTradeType()==ORDER_TYPE_BUY)return false;
+      }
+      else if(trendFlg==2 || trendFlg==3){
+         if(model.getTradeType()==ORDER_TYPE_SELL)return false;
+      }      
+      return true;
+   }
+   
+   double curHedgeLot=this.openHedgeLot(model,hedgePool);   
+   if(curHedgeLot<=0)return false;   
+   
+   double sumJumpPips=this.getIndShare().getPriceChlSumEdgeDiffPips(model.getSymbolIndex());
+   //double sumEdgeRate=this.getIndicatorShare().getPriceChlSumEdgeRate(model.getSymbolIndex());         
+   //double sumAdjustEdgeRate=MathAbs((sumJumpPips/100)+sumEdgeRate);   
+   
+   if(MathAbs(sumJumpPips)>100)return false;
+   
+   
+   bool edgeBreakFlg=  this.edgeBreakTend(model.getSymbolIndex(),
+                        model.getTradeType(),
+                        GRID_EXTEND01_FILTER_EDGE_INDEX,
+                        GRID_EXTEND01_MAX_EDGE_RATE,
+                        GRID_EXTEND01_LIMIT_BRK_PIPS);     
+   
+   if(rkeeLog.debugPeriod() && edgeBreakFlg){
+      bool test1=true;
+   }   
+   logData.addDebugInfo("<return>" + edgeBreakFlg + "</CFilterExtend01>");
+   
+   if(edgeBreakFlg){
+   
+      double sumJumpPips=this.getIndShare().getPriceChlSumEdgeDiffPips(model.getSymbolIndex());
+      double sumEdgeRate=this.getIndShare().getPriceChlSumEdgeRate(model.getSymbolIndex());
+   
+      double sumRate=sumJumpPips/100+sumEdgeRate;
+      
+      ENUM_ORDER_TYPE type=model.getTradeType();
+      if(type==ORDER_TYPE_SELL && sumRate>10)return false;
+      else if(type==ORDER_TYPE_BUY && sumRate<-10)return false;
+      return true;   
+   }
+   
+      
+   return edgeBreakFlg;
+}
+
+
+//+------------------------------------------------------------------+
+//|  class constructor   
+//+------------------------------------------------------------------+
+CFilterExtend01::CFilterExtend01(){}
+CFilterExtend01::~CFilterExtend01(){
+}
+ 

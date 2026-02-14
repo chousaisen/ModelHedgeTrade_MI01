@@ -1,1 +1,384 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼††††††††††††††††††††††††††䵃摯汥㄰洮桱簠਍⼯⁼†††††††††††††††††ർ⼊簯††††††††††††††††††††††ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⌊牰灯牥祴挠灯特杩瑨∠ഢ⌊牰灯牥祴氠湩⁫††∠瑨灴㩳⼯睷⹷煭㕬挮浯ഢ⌊牰灯牥祴瘠牥楳湯†∠⸱〰ഢഊ⌊湩汣摵⁥⸢⼮敨摡牥洯摯汥䌯效摡牥洮桱ഢ⌊湩汣摵⁥⸢⼮桳牡⽥千慨敲瑃⹬煭≨਍椣据畬敤∠䵃摯汥⹉煭≨਍਍汣獡⁳䵃摯汥›異汢捩䌠潍敤䥬ഠ笊਍†††牰癩瑡㩥਍††††⼠戯獡⁥慰慲敭整൲ ††††瑳楲杮†††††猠浹潢㭬†਍††††椠瑮†††††††祳扭汯湉敤㭸†††††਍††††椠瑮†††††††潭敤䭬湩㭤਍††††甠潬杮††††††潭敤䥬㭤਍††††椠瑮†††††††潭敤卬慴畴㭳਍††††䔠啎彍剏䕄归奔䕐†牴摡呥灹㭥਍††††⼠椯瑮†††††††牯敤卲慴畴㭳਍††††⼠䌯牁慲䱹獩㱴湩㹴†牯敤䕲牲牯㭳਍††††ഠ ††††⼯牯敤⁲潣瑮潲⁬慰慲敭整൲ ††††千慨敲瑃⁬††††猪慨敲瑃㭬ഠ ††††佃摲牥敓⁴††††牯敤卲瑥഻ ††††䡃摥敧片畯⩰†††敨杤䝥潲灵഻ ††††慤整楴敭†††††瑳牡呴浩㭥਍††††搠瑡瑥浩⁥††††琠慲敤楔敭഻ ††††慤整楴敭†††††慬瑳牔摡呥浩㭥਍††††ഠ ††††⼯潬⁧湩潦਍††††猠牴湩⁧†††††愠瑣潩䙮杬഻ ††††⼯汣慥⁲汦条਍††††戠潯⁬††††††挠敬牡汆㭧਍††††⼠洯摯汥猠慴畴⁳汦条爨湡敧猠慴畴⽳牴湥⁤瑳瑡獵ഩ ††††湩⁴†††††††瑳瑡獵湉敤㭸਍††††椠瑮†††††††猠慴畴䙳杬഻ ††††湩⁴†††††††慬瑳瑓瑡獵湉敤㭸਍††††椠瑮†††††††氠獡却慴畴䙳杬഻ഊ ††††⼯湩⁴†††††††瑳瑡獵畓䙢杬഻ ††††⼯硥整摮爠瑡൥ ††††潤扵敬††††††硥整摮慒整഻ ††††ഠ ††瀠扵楬㩣਍††††††††††䌠潍敤⡬㬩਍††††††††††縠䵃摯汥⤨※਍††††††⼯ⴭ‭湩整晲捡⁥畦据楴湯਍††††††潶摩††椠楮⡴千慨敲瑃⁬猪慨敲瑃ⱬ਍†††††††††††††䡃摥敧片畯⩰栠摥敧片畯Ɒ਍†††††††††††††湩⁴潭敤䭬湩Ɽ਍†††††††††††††潬杮洠摯汥摉ബ ††††††††††††猠牴湩⁧祳扭汯ബ ††††††††††††䔠啎彍剏䕄归奔䕐琠慲敤祔数㬩਍††††††潶摩††爠汥慯⡤㬩⼠爯汥慯⁤牯敤⁲牦浯琠敨洠牡敫൴ †††††瘠楯⁤††畲⡮㬩†⼯潭敤⁬畲⁮†††††਍††††††潶摩††爠晥敲桳⤨※⼯敲牦獥⁨牯敤⁲瑳瑡獵琨浩⁥楬業⥴਍††††††潶摩††挠敬湡⤨※⼯汣慥⁮牯敤⁲敳൴ †††††䌠牏敤⩲†牣慥整牏敤⡲㬩†⼠振敲瑡⁥牯敤⁲†††††ഠ †††††瘠楯⁤††摡佤摲牥䌨牏敤⩲漠摲牥㬩††††⼠愯摤漠摲牥††††††ഠ †††††瘠楯⁤††敲潭敶牏敤⡲佃摲牥‪牯敤⥲※†††⼯敲潭敶漠摲牥戠⁹牯敤⁲湩敤൸ †††††䌠牁慲䱹獩㱴湩㹴‪††敧佴摲牥敋獹⤨※⼯敧⁴牯敤⁲瑳瑡獵氠獩൴ †††††戠潯⁬††汣慥䵲摯汥⤨※††⼯汣慥⁲潭敤⁬爨獩⁫牰瑯捥⥴਍††††††਍††††††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍††††††⼯⁼朠瑥猯瑥洠摯汥瀠牡浡਍††††††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍††††††瑳楲杮†朠瑥祓扭汯⤨※†††††††⼠术瑥洠摯汥猠浹潢൬ †††††椠瑮†††敧却浹潢䥬摮硥⤨※†††††††⼠术瑥洠摯汥猠浹潢⁬湩敤൸ †††††搠畯汢⁥†敧却浹潢偬楲散⤨※†††††⼯敧⁴牴摡⁥祳扭汯瀠楲散戠⁹牴摡⁥祴数਍††††††潤扵敬†朠瑥祓扭汯潐湩⡴㬩†††††⼠术瑥琠慲敤猠浹潢⁬潰湩൴ †††††椠瑮†††敧䵴摯汥楋摮⤨※††††††⼯敧⁴潭敤⁬楫摮਍††††††汵湯⁧†朠瑥潍敤䥬⡤㬩†††††††⼠术瑥洠摯汥椠⁤ഠ †††††椠瑮†††敧䵴摯汥瑓瑡獵⤨※†††††⼯敧⁴潭敤⁬瑳瑡獵†††††††਍††††††汵湯⁧†朠瑥楓湧污摉⤨※†††††††⼯敧⁴楳湧污椠⁤†††††††ഠ †††††䔠啎彍剏䕄归奔䕐†††敧呴慲敤祔数⤨※††††††⼯敧⁴牴摡⁥祴数਍††††††湩⁴††朠瑥牏敤卲慴畴⡳㬩†††††⼠术瑥漠摲牥猠慴畴⡳牯敤⁲湩敤⹸‮⸰ㄮ⸮⸲堮ഩ †††††椠瑮†††敧佴摲牥潃湵⡴㬩††††††⼯敧⁴牯敤⁲潣湵൴ †††††椠瑮†††敧佴摲牥湉敤⡸㬩††††††⼯敧⁴牯敤⁲湩敤൸ †††††䌠牏敤⩲†敧佴摲牥椨瑮椠摮硥㬩††††⼠术瑥漠摲牥戠⁹牯敤⁲湩敤൸ †††††搠畯汢⁥†敧佴摲牥牐景瑩楐獰䌨牏敤⩲漠摲牥㬩††††⼠术瑥漠摲牥瀠潲楦⁴祢瀠灩൳ †††††瘠楯⁤††敳却浹潢⡬瑳楲杮瘠污敵㬩††††††⼯敳⁴潭敤⁬祳扭汯਍††††††潶摩††猠瑥祓扭汯湉敤⡸湩⁴祳扭汯湉敤⥸※†††††††⼠猯瑥洠摯汥猠浹潢⁬湩敤൸ †††††瘠楯⁤††敳䵴摯汥椨瑮洠摯汥楋摮䌬楓湧污‪楳湧污㬩††††††⼯敳⁴潭敤⁬慢敳椠普⁯†††††ഠ †††††瘠楯⁤††敳䵴摯汥楋摮椨瑮瘠污敵㬩††††††⼯敳⁴潭敤⁬楫摮††††††਍††††††潶摩††猠瑥潍敤䥬⡤汵湯⁧慶畬⥥※††††††⼠猯瑥洠摯汥椠⁤††††††਍††††††潶摩††猠瑥潍敤卬慴畴⡳湩⁴慶畬⥥※†††††⼯敳⁴潭敤⁬瑳瑡獵਍††††††千浹潢卬慨敲‪敧却浹潢卬慨敲⤨※†††††††⼯敧⁴祳扭汯猠慨敲ഠ †††††瘠楯⁤††敳呴慲敤祔数䔨啎彍剏䕄归奔䕐瘠污敵㬩†⼯敳⁴牴摡⁥祴数਍††††††潶摩††猠瑥牏敤卲慴畴⡳湩⁴慶畬⥥※†††††⼠猯瑥漠摲牥猠慴畴⡳牯敤⁲湩敤⹸‮⸰ㄮ⸮⸲堮ഩ †††††䌠牏敤卲瑥‪††敧佴摲牥敓⡴㬩†††††††††⼯敧⁴牯敤卲瑥਍††††††䡃摥敧片畯⩰†朠瑥效杤䝥潲灵⤨※†††††††⼠术瑥栠摥敧朠潲灵਍††††††湩⁴††挠潬敳牏敤獲⤨※†††††††††††⼠振潬敳漠摲牥൳ †††††瘠楯⁤††慭敫潃浭湥⡴佃摲牥⨠牯敤⥲഻ †††††ഠ †††††⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲捡楴湯映慬൧ †††††猠牴湩⁧†敧䅴瑣潩䙮杬⤨഻ †††††瘠楯⁤††敳䅴瑣潩䙮杬猨牴湩⁧慶畬⥥഻ †††††⼠ 慭歲琠敨挠敬牡映慬⁧景愠汬琠敨漠摲牥൳ †††††椠瑮†††慭歲汃慥䙲慬⡧潢汯瘠污敵㬩ഠ †††††⼠ 敧⁴潭敤⁬汣慥⁲汦条਍††††††潢汯††朠瑥汃慥䙲慬⡧㬩਍††††††⼯朠瑥琠慲敤琠浩⡥慬瑳漠摲牥ഩ †††††搠瑡瑥浩⁥朠瑥牔摡呥浩⡥㬩਍††††††潶摩†††敳呴慲敤楔敭搨瑡瑥浩⁥慶畬⥥瑻楨⹳牴摡呥浩㵥慶畬㭥ൽ †††††搠瑡瑥浩⁥朠瑥瑓牡呴浩⡥笩敲畴湲琠楨⹳瑳牡呴浩㭥ൽ †††††瘠楯⁤††猠瑥瑓牡呴浩⡥慤整楴敭瘠污敵笩桴獩献慴瑲楔敭瘽污敵紻਍††††††਍††††††⼯朠瑥猠慴畴⁳湩敤൸ †††††椠瑮†敧却慴畴䥳摮硥⤨牻瑥牵⁮桴獩献慴畴䥳摮硥紻਍††††††潶摩猠瑥瑓瑡獵湉敤⡸湩⁴慶畬⥥瑻楨⹳瑳瑡獵湉敤㵸慶畬㭥⁽ഠ †††††椠瑮†敧䱴獡却慴畴䥳摮硥⤨牻瑥牵⁮桴獩氮獡却慴畴䥳摮硥紻਍††††††潶摩猠瑥慌瑳瑓瑡獵湉敤⡸湩⁴慶畬⥥瑻楨⹳慬瑳瑓瑡獵湉敤㵸慶畬㭥⁽†††††††††††਍††††††⼯朠瑥猠慴畴⁳汦条਍††††††湩⁴朠瑥瑓瑡獵汆⡧笩敲畴湲琠楨⹳瑳瑡獵汆㭧ൽ †††††瘠楯⁤敳却慴畴䙳杬椨瑮瘠污敵笩桴獩献慴畴䙳杬瘽污敵紻਍††††††湩⁴朠瑥慌瑳瑓瑡獵汆⡧笩敲畴湲琠楨⹳慬瑳瑓瑡獵汆㭧ൽ †††††瘠楯⁤敳䱴獡却慴畴䙳杬椨瑮瘠污敵笩桴獩氮獡却慴畴䙳杬瘽污敵紻਍††††††⼯朠瑥猠慴畴⁳汦条਍††††††⼯湩⁴朠瑥瑓瑡獵畓䙢杬⤨牻瑥牵⁮桴獩献慴畴即扵汆㭧ൽ †††††⼠瘯楯⁤敳却慴畴即扵汆⡧湩⁴慶畬⥥瑻楨⹳瑳瑡獵畓䙢杬瘽污敵紻†਍††††††⼯朠瑥猯瑥攠瑸湥⁤慲整਍††††††潶摩††敳䕴瑸湥剤瑡⡥潤扵敬瘠污敵笩桴獩攮瑸湥剤瑡㵥慶畬㭥ൽ †††††搠畯汢⁥朠瑥硅整摮慒整⤨牻瑥牵⁮桴獩攮瑸湥剤瑡㭥ൽ †††††䌠桓牡䍥汴‪敧却慨敲瑃⡬笩敲畴湲琠楨⹳桳牡䍥汴紻഻紊഻ ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†湩瑩慩楬敺琠敨挠慬獳਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠潍敤㩬椺楮⡴千慨敲瑃⁬猪慨敲瑃ⱬ਍††††††††††††䡃摥敧片畯⩰栠摥敧片畯Ɒ਍††††††††††††湩⁴潭敤䭬湩Ɽ਍††††††††††††潬杮洠摯汥摉ബ †††††††††††猠牴湩⁧祳扭汯ബ †††††††††††䔠啎彍剏䕄归奔䕐琠慲敤祔数ഩ笊਍†琠楨⹳桳牡䍥汴猽慨敲瑃㭬਍†琠楨⹳敨杤䝥潲灵栽摥敧片畯㭰਍†琠楨⹳敳䵴摯汥楋摮洨摯汥楋摮㬩਍†琠楨⹳敳却浹潢⡬祳扭汯㬩਍†琠楨⹳敳却浹潢䥬摮硥琨楨⹳桳牡䍥汴朮瑥祓扭汯桓牡⡥⸩敧却浹潢䥬摮硥猨浹潢⥬㬩਍†琠楨⹳敳呴慲敤祔数琨慲敤祔数㬩਍†琠楨⹳敳䵴摯汥摉洨摯汥摉㬩†਍†ഠ †桴獩漮摲牥敓⹴敳䵴摯汥楋摮琨楨⹳潭敤䭬湩⥤഻ †桴獩漮摲牥敓⹴敳䵴摯汥摉琨楨⹳敧䵴摯汥摉⤨㬩਍†琠楨⹳牯敤卲瑥献瑥祓扭汯猨浹潢⥬഻ †桴獩挮敬牡汆㵧慦獬㭥਍†琠楨⹳牴摡呥浩㵥㬰਍†琠楨⹳硥整摮慒整ㄽ഻紊਍਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼挠敲瑡⁥牯敤⁲祢洠摯汥椠普൯⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊牏敤⩲䌠潍敤㩬挺敲瑡佥摲牥瘨楯⥤਍⁻†਍†ഠ †⼯牣慥整漠摲牥਍†䌠牏敤⁲漪摲牥渽睥䌠牏敤⡲㬩਍†漠摲牥献瑥祓扭汯琨楨⹳敧却浹潢⡬⤩※਍†漠摲牥献瑥祓扭汯湉敤⡸桴獩朮瑥祓扭汯湉敤⡸⤩※ഠ †牯敤⹲敳呴慲敤瑓瑡獵吨䅒䕄卟䅔啔当剔䑁彅䕐䑎义⥇഻ †牯敤⹲敳䵴摯汥楋摮琨楨⹳敧䵴摯汥楋摮⤨㬩਍†漠摲牥献瑥潍敤䥬⡤桴獩朮瑥潍敤䥬⡤⤩഻ †牯敤⹲敳佴摲牥祔数琨楨⹳敧呴慲敤祔数⤨㬩਍†ഠ †牯敤⹲敳佴摲牥湉敤⡸桴獩漮摲牥敓⹴潣湵⡴⤩※⼠漯摲牥猠慴畴൳ †汵湯⁧慭楧䥣㵤潣䙭湵⹣牣慥整牏敤䥲⡤牯敤⹲敧䵴摯汥摉⤨漬摲牥朮瑥牏敤䥲摮硥⤨㬩਍†漠摲牥献瑥慍楧⡣慭楧䥣⥤※††਍†⼠猯瑥猠浹潢⁬湩潦਍†漠摲牥献瑥潐湩⡴桴獩献慨敲瑃⹬敧却浹潢卬慨敲⤨朮瑥祓扭汯湉潦⡳⸩敧却浹潢偬楯瑮琨楨⹳敧却浹潢⡬⤩㬩†ഠ †潣䙭湵⹣慭敫潃浭湥⡴牯敤⥲഻ †਍†琠楨⹳摡佤摲牥漨摲牥㬩਍†琠楨⹳桳牡䍥汴朮瑥潍敤卬慨敲⤨愮摤牏敤⡲牯敤⥲഻ †਍†⼠爯晥敲桳栠摥敧搠瑡ൡ †桴獩栮摥敧片畯⹰敨杤佥摲牥⡳㬩ഠ †⼯整瑳戠来湩਍†琠楨⹳桳牡䍥汴朮瑥效杤卥慨敲⤨朮瑥效杤䝥潲灵潐汯⤨栮摥敧牏敤獲⤨഻ †⼯桴獩琮慲敤楔敭吽浩䍥牵敲瑮⤨഻ †桴獩献瑥牔摡呥浩⡥楔敭畃牲湥⡴⤩഻ †਍†爠瑥牵⁮牯敤㭲਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†摡⁤牯敤⁲潴琠敨漠摲牥敓൴⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ瘊楯⁤䵃摯汥㨺摡佤摲牥䌨牏敤⩲漠摲牥笩਍†琠楨⹳牯敤卲瑥愮摤漨摲牥㬩਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敲潭敶漠摲牥琠⁯桴⁥牯敤卲瑥਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠潍敤㩬爺浥癯佥摲牥䌨牏敤⩲漠摲牥笩਍†琠楨⹳牯敤卲瑥爮浥癯⡥牯敤⥲഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥漠摲牥猠慴畴⁳楬瑳਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䅃牲祡楌瑳椼瑮⨾䌠潍敤㩬机瑥牏敤䭲祥⡳ഩ笊†ഠ †敲畴湲琠楨⹳牯敤卲瑥朮瑥敋獹⤨഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼爠湵洠摯汥਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭†਍潶摩䌠潍敤㩬爺湵⤨ൻ †桴獩爮晥敲桳⤨഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼爠晥敲桳洠摯汥猧漠摲牥⁳瑳瑡獵਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭†਍潶摩䌠潍敤㩬爺晥敲桳⤨ൻ †琠楨⹳慭歲汃慥䙲慬⡧慦獬⥥഻ †琠楨⹳硥整摮慒整ㄽ഻紊਍਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼挠敬湡挠潬敳漠摲牥਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠潍敤㩬挺敬湡⤨⁻†਍††琠楨⹳牯敤卲瑥挮敬湡⤨഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼挠敬湡挠潬敳漠摲牥਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍湩⁴䌠潍敤㩬机瑥牏敤䍲畯瑮⤨ൻ †爠瑥牵⁮桴獩漮摲牥敓⹴潣湵⡴㬩਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†汣慥⁮汣獯⁥牯敤൲⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ椊瑮†䵃摯汥㨺敧佴摲牥湉敤⡸笩਍††湩⁴牯敤䍲畯瑮琽楨⹳敧佴摲牥潃湵⡴㬩਍††晩漨摲牥潃湵㹴⤰敲畴湲漠摲牥潃湵⵴㬱਍††敲畴湲ⴠ㬱਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯朠瑥漠摲牥戠⁹牯敤⁲湩敤൸⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊牏敤⩲†䵃摯汥㨺敧佴摲牥椨瑮椠摮硥笩਍††敲畴湲琠楨⹳牯敤卲瑥朮瑥牏敤⡲湩敤⥸഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥猠浹潢⁬桳牡൥⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊祓扭汯桓牡⩥䌠潍敤㩬机瑥祓扭汯桓牡⡥笩਍†爠瑥牵⁮桴獩献慨敲瑃⹬敧却浹潢卬慨敲⤨഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥猠浹潢⁬牰捩൥⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ搊畯汢⁥䌠潍敤㩬机瑥祓扭汯牐捩⡥笩਍†爠瑥牵⁮桴獩朮瑥祓扭汯桓牡⡥⸩敧却浹潢偬楲散琨楨⹳敧却浹潢⡬Ⱙ桴獩朮瑥牔摡呥灹⡥⤩഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥猠浹潢⁬潰湩൴⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ搊畯汢⁥䌠潍敤㩬机瑥祓扭汯潐湩⡴笩਍†爠瑥牵⁮桴獩献慨敲瑃⹬敧却浹潢卬慨敲⤨朮瑥祓扭汯湉潦⡳⸩敧却浹潢偬楯瑮琨楨⹳敧却浹潢⡬⤩※††ഠ紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥漠摲牥瀠潲楦⁴楰獰਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潤扵敬†䵃摯汥㨺敧佴摲牥牐景瑩楐獰䌨牏敤⩲漠摲牥笩਍†搠畯汢⁥畣卲浹潢偬楲散琽楨⹳敧却浹潢偬楲散⤨഻ †潤扵敬瀠楯瑮琽楨⹳敧却浹潢偬楯瑮⤨഻ †潤扵敬瀠潲楦側灩㵳挨牵祓扭汯牐捩ⵥ牯敤⹲敧佴数偮楲散⤨⼩潰湩㭴਍†椠⡦牯敤⹲敧佴摲牥祔数⤨㴽剏䕄归奔䕐卟䱅⥌ൻ ††瀠潲楦側灩㵳瀭潲楦側灩㭳਍†素਍†爠瑥牵⁮牰景瑩楐獰഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥栠摥敧朠潲灵਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䡃摥敧片畯⩰†䵃摯汥㨺敧䡴摥敧片畯⡰笩਍†爠瑥牵⁮桴獩栮摥敧片畯㭰਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†汣獯⁥牯敤獲਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍湩⁴䌠潍敤㩬挺潬敳牏敤獲⤨⁻†਍†椠瑮挠潬敳潃湵㵴㬰਍†映牯⠠湩⁴⁩‽㬰椠㰠琠楨⹳敧佴摲牥敋獹⤨䌮畯瑮⤨※⭩⤫笠†††ഠ ††椠瑮漠摲牥敋㭹਍†††桴獩朮瑥牏敤䭲祥⡳⸩牔䝹瑥慖畬⡥Ⱪ牯敤䭲祥㬩††††ഠ ††䌠牏敤⁲漪摲牥琽楨⹳牯敤卲瑥朮瑥牏敤⡲牯敤䭲祥㬩਍†††晩䌨敨正潐湩整⡲牯敤⥲㴽佐义䕔归义䅖䥌⥄潣瑮湩敵഻ ††椠⡦牯敤⹲敧呴慲敤瑓瑡獵⤨㴽剔䑁彅呓呁单呟䅒䕄笩†††††ഠ ††††牯敤⹲敳呴慲敤瑓瑡獵吨䅒䕄卟䅔啔当䱃协彅䕒䑁⥙഻ ††††牯敤⹲敳䅴瑣潩䙮杬琨楨⹳敧䅴瑣潩䙮杬⤨㬩਍††††挠潬敳潃湵⭴㬫਍†††ൽ †⁽਍†爠瑥牵⁮汣獯䍥畯瑮഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼猠瑥洠摯汥漠摲牥⁳汣慥⁲汦条਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍湩⁴䌠潍敤㩬洺牡䍫敬牡汆条戨潯⁬慶畬⥥ൻ †湩⁴牯敤䍲畯瑮琽楨⹳敧佴摲牥敋獹⤨䌮畯瑮⤨഻ †潦⁲椨瑮椠㴠〠※⁩‼牯敤䍲畯瑮※⭩⤫笠†††ഠ ††椠瑮漠摲牥敋㭹਍†††桴獩朮瑥牏敤䭲祥⡳⸩牔䝹瑥慖畬⡥Ⱪ牯敤䭲祥㬩††††ഠ ††䌠牏敤⁲漪摲牥琽楨⹳牯敤卲瑥朮瑥牏敤⡲牯敤䭲祥㬩਍†††晩䌨敨正潐湩整⡲牯敤⥲㴽佐义䕔归义䅖䥌⥄潣瑮湩敵഻ ††漠摲牥献瑥汃慥䙲杬瘨污敵㬩਍†素਍†椠⡦牯敤䍲畯瑮〾琩楨⹳汣慥䙲杬瘽污敵※਍†爠瑥牵⁮牯敤䍲畯瑮഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥洠摯汥挠敬牡映慬൧⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ戊潯⁬䌠潍敤㩬机瑥汃慥䙲慬⡧笩਍†爠瑥牵⁮琠楨⹳汣慥䙲杬഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼挠敬牡洠摯汥爨獩⁫牰瑯捥⥴਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭††਍潢汯†䵃摯汥㨺汣慥䵲摯汥⤨ൻ †桴獩献瑥捁楴湯汆⡧挢敬牡潍敤≬㬩਍†椠⡦桴獩挮潬敳牏敤獲⤨〾爩瑥牵⁮牴敵഻ †敲畴湲映污敳഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼敇瑴牥愠摮匠瑥整⁲潦⁲捡楴湯映慬൧⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ猊牴湩⁧䌠潍敤㩬机瑥捁楴湯汆⡧笩敲畴湲愠瑣潩䙮杬紻਍潶摩†䵃摯汥㨺敳䅴瑣潩䙮杬猨牴湩⁧慶畬⥥笠愠瑣潩䙮杬㴠瘠污敵※ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敧瑴牥猯瑥整൲⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫†ഠ猊牴湩⁧䵃摯汥㨺敧却浹潢⡬笩敲畴湲琠楨⹳祳扭汯紻††਍湩⁴†䌠潍敤㩬机瑥祓扭汯湉敤⡸笩敲畴湲琠楨⹳祳扭汯湉敤㭸⁽†ഠ椊瑮††䵃摯汥㨺敧䵴摯汥楋摮瘨楯⥤牻瑥牵⁮桴獩洮摯汥楋摮紻††਍汵湯⁧䌠潍敤㩬机瑥潍敤䥬⡤潶摩笩敲畴湲琠楨⹳潭敤䥬㭤ൽ椊瑮††䵃摯汥㨺敧䵴摯汥瑓瑡獵瘨楯⥤牻瑥牵⁮桴獩洮摯汥瑓瑡獵紻††ഠ䔊啎彍剏䕄归奔䕐䌠潍敤㩬机瑥牔摡呥灹⡥潶摩笩敲畴湲琠楨⹳牴摡呥灹㭥⁽਍⼯朠瑥琠慲敤琠浩⡥慬瑳漠摲牥ഩ搊瑡瑥浩⁥䌠潍敤㩬机瑥牔摡呥浩⡥笩敲畴湲琠楨⹳牴摡呥浩㭥⁽਍†ഠഊ瘊楯⁤䵃摯汥㨺敳却浹潢⡬瑳楲杮瘠污敵笩桴獩献浹潢㵬慶畬㭥⁽਍潶摩䌠潍敤㩬猺瑥祓扭汯湉敤⡸湩⁴慶畬⥥瑻楨⹳祳扭汯湉敤㵸慶畬㭥⁽਍潶摩䌠潍敤㩬猺瑥潍敤䭬湩⡤湩⁴慶畬⥥瑻楨⹳潭敤䭬湩㵤慶畬㭥ൽ瘊楯⁤䵃摯汥㨺敳䵴摯汥摉用潬杮瘠污敵笩桴獩洮摯汥摉瘽污敵紻਍潶摩䌠潍敤㩬猺瑥潍敤卬慴畴⡳湩⁴慶畬⥥瑻楨⹳潭敤卬慴畴㵳慶畬㭥ൽ瘊楯⁤䵃摯汥㨺敳呴慲敤祔数䔨啎彍剏䕄归奔䕐瘠污敵笩桴獩琮慲敤祔数瘽污敵紻਍佃摲牥敓⩴䌠潍敤㩬机瑥牏敤卲瑥⤨牻瑥牵⁮琦楨⹳牯敤卲瑥紻਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼挠慬獳挠湯瑳畲瑣牯†ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊潍敤㩬䌺潍敤⡬笩ൽ䌊潍敤㩬縺䵃摯汥⤨絻
+//+------------------------------------------------------------------+
+//|                                                     CModel01.mqh |
+//|                                   |
+//|                                             
+//+------------------------------------------------------------------+
+#property copyright ""
+#property link      "https://www.mql5.com"
+#property version   "1.00"
+
+#include "../header/model/CHeader.mqh"
+#include "../share/CShareCtl.mqh"
+#include "CModelI.mqh"
+
+class CModel: public CModelI 
+{
+      private:
+         //base parameter
+         string           symbol;  
+         int              symbolIndex;          
+         int              modelKind;
+         ulong            modelId;
+         int              modelStatus;
+         ENUM_ORDER_TYPE  tradeType;
+         //int              orderStatus;
+         //CArrayList<int>  orderErrors;
+         
+         //order control parameter
+         CShareCtl         *shareCtl; 
+         COrderSet         orderSet;
+         CHedgeGroup*      hedgeGroup;
+         datetime          startTime;
+         datetime          tradeTime;
+         datetime          lastTradeTime;
+         
+         //log info
+         string            actionFlg;
+         //clear flag
+         bool              clearFlg;
+         //model status flag(range status/trend status)
+         int               statusIndex;
+         int               statusFlg;
+         int               lastStatusIndex;
+         int               lastStatusFlg;
+
+         //int               statusSubFlg;
+         //extend rate
+         double            extendRate;
+          
+      public:
+                     CModel();
+                     ~CModel(); 
+            //--- interface function
+            void     init(CShareCtl *shareCtl,
+                          CHedgeGroup* hedgeGroup,
+                          int modelKind,
+                          long modelId,
+                          string symbol,
+                          ENUM_ORDER_TYPE tradeType);
+            void     reload(); //reload order from the market
+            void     run();  //model run           
+            void     refresh(); //refresh order status(time limit)
+            void     clean(); //clean order set
+            COrder*  createOrder();   //create order            
+            void     addOrder(COrder* order);         //add order             
+            void     removeOrder(COrder* order);       //remove order by order index
+            CArrayList<int>*     getOrderKeys(); //get order status list
+            bool     clearModel();     //clear model (risk protect)
+            
+            //+------------------------------------------------------------------+
+            //|  get/set model param
+            //+------------------------------------------------------------------+
+            string   getSymbol();                //get model symbol
+            int      getSymbolIndex();                //get model symbol index
+            double   getSymbolPrice();           //get trade symbol price by trade type
+            double   getSymbolPoint();           //get trade symbol point
+            int      getModelKind();             //get model kind
+            ulong    getModelId();               //get model id  
+            int      getModelStatus();           //get model status              
+            ulong    getSignalId();               //get signal id                
+            ENUM_ORDER_TYPE      getTradeType();             //get trade type
+            int      getOrderStatus();           //get order status(order index.. 0..1..2..X)
+            int      getOrderCount();            //get order count
+            int      getOrderIndex();            //get order index
+            COrder*  getOrder(int index);         //get order by order index
+            double   getOrderProfitPips(COrder* order);         //get order profit by pips
+            void     setSymbol(string value);            //set model symbol
+            void     setSymbolIndex(int symbolIndex);                //set model symbol index
+            void     setModel(int modelKind,CSignal* signal);            //set model base info            
+            void     setModelKind(int value);            //set model kind            
+            void     setModelId(ulong value);              //set model id             
+            void     setModelStatus(int value);           //set model status
+            CSymbolShare* getSymbolShare();               //get symbol share 
+            void     setTradeType(ENUM_ORDER_TYPE value);  //set trade type
+            void     setOrderStatus(int value);            //set order status(order index.. 0..1..2..X)
+            COrderSet*     getOrderSet();                  //get orderSet
+            CHedgeGroup*   getHedgeGroup();                //get hedge group
+            int      closeOrders();                        //close orders
+            void     makeComment(COrder *order);
+            
+            // Getter and Setter for action flag
+            string   getActionFlg();
+            void     setActionFlg(string value);
+            // mark the clear flag of all the orders
+            int      markClearFlag(bool value); 
+            // get model clear flag
+            bool     getClearFlag();
+            // get trade time(last order)
+            datetime  getTradeTime();
+            void      setTradeTime(datetime value){this.tradeTime=value;}
+            datetime  getStartTime(){return this.startTime;}
+            void      setStartTime(datetime value){this.startTime=value;}
+            
+            // get status index
+            int  getStatusIndex(){return this.statusIndex;}
+            void setStatusIndex(int value){this.statusIndex=value;}  
+            int  getLastStatusIndex(){return this.lastStatusIndex;}
+            void setLastStatusIndex(int value){this.lastStatusIndex=value;}                       
+            // get status flag
+            int  getStatusFlg(){return this.statusFlg;}
+            void setStatusFlg(int value){this.statusFlg=value;}
+            int  getLastStatusFlg(){return this.lastStatusFlg;}
+            void setLastStatusFlg(int value){this.lastStatusFlg=value;}
+            // get status flag
+            //int  getStatusSubFlg(){return this.statusSubFlg;}
+            //void setStatusSubFlg(int value){this.statusSubFlg=value;}  
+            // get/set extend rate
+            void    setExtendRate(double value){this.extendRate=value;}
+            double  getExtendRate(){return this.extendRate;}
+            CShareCtl* getShareCtl(){return this.shareCtl;};
+};
+  
+//+------------------------------------------------------------------+
+//|  initialize the class
+//+------------------------------------------------------------------+
+void CModel::init(CShareCtl *shareCtl,
+                        CHedgeGroup* hedgeGroup,
+                        int modelKind,
+                        long modelId,
+                        string symbol,
+                        ENUM_ORDER_TYPE tradeType)
+{
+   this.shareCtl=shareCtl;
+   this.hedgeGroup=hedgeGroup;
+   this.setModelKind(modelKind);
+   this.setSymbol(symbol);
+   this.setSymbolIndex(this.shareCtl.getSymbolShare().getSymbolIndex(symbol));
+   this.setTradeType(tradeType);
+   this.setModelId(modelId);  
+   
+   this.orderSet.setModelKind(this.modelKind);
+   this.orderSet.setModelId(this.getModelId());
+   this.orderSet.setSymbol(symbol);
+   this.clearFlg=false;
+   this.tradeTime=0;
+   this.extendRate=1;
+}
+
+
+//+------------------------------------------------------------------+
+//|  create order by model info
+//+------------------------------------------------------------------+
+COrder* CModel::createOrder(void)
+{   
+   
+   //create order
+   COrder *order=new COrder();
+   order.setSymbol(this.getSymbol()); 
+   order.setSymbolIndex(this.getSymbolIndex());  
+   order.setTradeStatus(TRADE_STATUS_TRADE_PENDING);
+   order.setModelKind(this.getModelKind());
+   order.setModelId(this.getModelId());
+   order.setOrderType(this.getTradeType());
+   
+   order.setOrderIndex(this.orderSet.count());  //order status
+   ulong magicId=comFunc.createOrderId(order.getModelId(),order.getOrderIndex());
+   order.setMagic(magicId);     
+   //set symbol info
+   order.setPoint(this.shareCtl.getSymbolShare().getSymbolInfos().getSymbolPoint(this.getSymbol()));   
+   comFunc.makeComment(order);
+   
+   this.addOrder(order);
+   this.shareCtl.getModelShare().addOrder(order);
+   
+   //refresh hedge data
+   this.hedgeGroup.hedgeOrders(); 
+   //test begin
+   this.shareCtl.getHedgeShare().getHedgeGroupPool().hedgeOrders();
+   //this.tradeTime=TimeCurrent();
+   this.setTradeTime(TimeCurrent());
+   
+   return order;
+}
+
+//+------------------------------------------------------------------+
+//|  add order to the orderSet
+//+------------------------------------------------------------------+
+void CModel::addOrder(COrder* order){
+   this.orderSet.add(order);
+}
+
+//+------------------------------------------------------------------+
+//|  remove order to the orderSet
+//+------------------------------------------------------------------+
+void CModel::removeOrder(COrder* order){
+   this.orderSet.remove(order);
+}
+
+//+------------------------------------------------------------------+
+//|  get order status list
+//+------------------------------------------------------------------+
+CArrayList<int>* CModel::getOrderKeys()
+{   
+   return this.orderSet.getKeys();
+}
+
+//+------------------------------------------------------------------+
+//|  run model
+//+------------------------------------------------------------------+  
+void CModel::run(){
+   this.refresh();
+}
+
+//+------------------------------------------------------------------+
+//|  refresh model's orders status
+//+------------------------------------------------------------------+  
+void CModel::refresh(){
+    this.markClearFlag(false);
+    this.extendRate=1;
+}
+
+
+//+------------------------------------------------------------------+
+//|  clean close order
+//+------------------------------------------------------------------+
+void CModel::clean(){   
+     this.orderSet.clean();
+}
+
+//+------------------------------------------------------------------+
+//|  clean close order
+//+------------------------------------------------------------------+
+int  CModel::getOrderCount(){
+    return this.orderSet.count();
+}
+
+//+------------------------------------------------------------------+
+//|  clean close order
+//+------------------------------------------------------------------+
+int  CModel::getOrderIndex(){
+    int orderCount=this.getOrderCount();
+    if(orderCount>0)return orderCount-1;
+    return -1;
+}
+
+//+------------------------------------------------------------------+
+//| get order by order index
+//+------------------------------------------------------------------+
+COrder*  CModel::getOrder(int index){
+    return this.orderSet.getOrder(index);
+}
+
+//+------------------------------------------------------------------+
+//|  get symbol share
+//+------------------------------------------------------------------+
+CSymbolShare* CModel::getSymbolShare(){
+   return this.shareCtl.getSymbolShare();
+}
+
+//+------------------------------------------------------------------+
+//|  get symbol price
+//+------------------------------------------------------------------+
+double  CModel::getSymbolPrice(){
+   return this.getSymbolShare().getSymbolPrice(this.getSymbol(),this.getTradeType());
+}
+
+//+------------------------------------------------------------------+
+//|  get symbol point
+//+------------------------------------------------------------------+
+double  CModel::getSymbolPoint(){
+   return this.shareCtl.getSymbolShare().getSymbolInfos().getSymbolPoint(this.getSymbol());      
+}
+
+//+------------------------------------------------------------------+
+//|  get order profit pips
+//+------------------------------------------------------------------+
+double  CModel::getOrderProfitPips(COrder* order){
+   double curSymbolPrice=this.getSymbolPrice();
+   double point=this.getSymbolPoint();
+   double profitPips=(curSymbolPrice-order.getOpenPrice())/point;
+   if(order.getOrderType()==ORDER_TYPE_SELL){
+      profitPips=-profitPips;
+   }
+   return profitPips;
+}
+
+//+------------------------------------------------------------------+
+//|  get hedge group
+//+------------------------------------------------------------------+
+CHedgeGroup*  CModel::getHedgeGroup(){
+   return this.hedgeGroup;
+}
+
+//+------------------------------------------------------------------+
+//|  close orders
+//+------------------------------------------------------------------+
+int  CModel::closeOrders(){   
+   int closeCount=0;
+   for (int i = 0; i < this.getOrderKeys().Count(); i++) {       
+      int orderKey;
+      this.getOrderKeys().TryGetValue(i,orderKey);         
+      COrder *order=this.orderSet.getOrder(orderKey);
+      if(CheckPointer(order)==POINTER_INVALID)continue;
+      if(order.getTradeStatus()==TRADE_STATUS_TRADE){           
+         order.setTradeStatus(TRADE_STATUS_CLOSE_READY);
+         order.setActionFlg(this.getActionFlg());
+         closeCount++;
+      }
+   } 
+   return closeCount;
+}
+
+//+------------------------------------------------------------------+
+//|  set model orders clear flag
+//+------------------------------------------------------------------+
+int  CModel::markClearFlag(bool value){
+   int orderCount=this.getOrderKeys().Count();
+   for (int i = 0; i < orderCount; i++) {       
+      int orderKey;
+      this.getOrderKeys().TryGetValue(i,orderKey);         
+      COrder *order=this.orderSet.getOrder(orderKey);
+      if(CheckPointer(order)==POINTER_INVALID)continue;
+      order.setClearFlg(value);
+   }
+   if(orderCount>0)this.clearFlg=value; 
+   return orderCount;
+}
+
+//+------------------------------------------------------------------+
+//|  get model clear flag
+//+------------------------------------------------------------------+
+bool  CModel::getClearFlag(){
+   return  this.clearFlg;
+}
+
+//+------------------------------------------------------------------+
+//|  clear model(risk protect)
+//+------------------------------------------------------------------+    
+bool  CModel::clearModel(){
+   this.setActionFlg("clearModel");
+   if(this.closeOrders()>0)return true;
+   return false;
+}
+
+//+------------------------------------------------------------------+
+//| Getter and Setter for action flag
+//+------------------------------------------------------------------+
+string  CModel::getActionFlg(){return actionFlg;}
+void  CModel::setActionFlg(string value) { actionFlg = value; }
+
+//+------------------------------------------------------------------+
+//|  getter/setter
+//+------------------------------------------------------------------+    
+string CModel::getSymbol(){return this.symbol;}    
+int    CModel::getSymbolIndex(){return this.symbolIndex;}    
+int    CModel::getModelKind(void){return this.modelKind;}    
+ulong  CModel::getModelId(void){return this.modelId;}
+int    CModel::getModelStatus(void){return this.modelStatus;}     
+ENUM_ORDER_TYPE CModel::getTradeType(void){return this.tradeType;} 
+// get trade time(last order)
+datetime  CModel::getTradeTime(){return this.tradeTime;} 
+   
+
+void CModel::setSymbol(string value){this.symbol=value;} 
+void CModel::setSymbolIndex(int value){this.symbolIndex=value;} 
+void CModel::setModelKind(int value){this.modelKind=value;}
+void CModel::setModelId(ulong value){this.modelId=value;}
+void CModel::setModelStatus(int value){this.modelStatus=value;}
+void CModel::setTradeType(ENUM_ORDER_TYPE value){this.tradeType=value;}
+COrderSet* CModel::getOrderSet(){return &this.orderSet;}
+//+------------------------------------------------------------------+
+//|  class constructor   
+//+------------------------------------------------------------------+
+CModel::CModel(){}
+CModel::~CModel(){}

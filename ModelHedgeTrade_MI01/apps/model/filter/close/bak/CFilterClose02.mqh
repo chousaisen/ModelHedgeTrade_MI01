@@ -1,1 +1,132 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼†††††††††††††††††††††††䌠楆瑬牥汃獯づ䤲洮桱簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍瀣潲数瑲⁹敶獲潩⁮†ㄢ〮∰਍਍椣据畬敤∠⸮䌯潍敤䙬汩整⹲煭≨਍਍汣獡⁳䙃汩整䍲潬敳㈰›異汢捩䌠潍敤䙬汩整⁲਍ൻ ††瀠扵楬㩣਍†††††††††††䙃汩整䍲潬敳㈰⤨഻ ††††††††††縠䙃汩整䍲潬敳㈰⤨※††††††††††ഠ †††††††潢汯†挠潬敳楆瑬牥䌨潍敤䥬‪潭敤⥬഻ †††††††潢汯†挠潬敳楆瑬牥䌨牏敤⩲漠摲牥㬩†††††††ഠ †††††††潢汯†攠杤䉥敲歡汃獯⡥䵃摯汥⩉洠摯汥ബ ††††††††††††††††††††椠瑮猠浹潢䥬摮硥ബ ††††††††††††††††††††䔠啎彍剏䕄归奔䕐琠灹ⱥ਍†††††††††††††††††††††湩⁴档䥬摮硥ബ ††††††††††††††††††††搠畯汢⁥慭䕸杤剥瑡ⱥ਍†††††††††††††††††††††潤扵敬氠浩瑩牂慥偫灩⥳഻紊഻ ഠഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†楦瑬牥琠敨挠潬敳洠摯汥਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潢汯䌠楆瑬牥汃獯づ㨲挺潬敳楆瑬牥䌨潍敤䥬‪潭敤⥬਍ൻ †潬䑧瑡⹡摡䑤扥杵湉潦∨䌼楆瑬牥汃獯づⴲ潭敤㹬⤢഻ †湩⁴祳扭汯湉敤㵸潭敤⹬敧却浹潢䥬摮硥⤨഻ †䥃摮捩瑡牯桓牡⩥椠摮桓牡㵥桴獩朮瑥湉卤慨敲⤨഻ †潤扵敬猠牴湥瑧剨瑡㵥湩卤慨敲朮瑥瑓敲杮桴慒整猨浹潢䥬摮硥㬩਍†搠畯汢⁥摥敧慒整椽摮桓牡⹥敧䕴杤剥瑡⡥祳扭汯湉敤⥸഻ †潤扵敬猠浵慒整猽牴湥瑧剨瑡⭥摥敧慒整※†਍†਍†搠畯汢⁥汣獯䑥晩䕦瑸湥剤瑡㵥則䑉䍟佌䕓䑟䙉彆塅䕔䑎䉟䝅义剟呁㭅਍†ഠ †潤扵敬洠摯汥牐景瑩洽摯汥朮瑥牐景瑩⤨※†਍†搠畯汢⁥潭敤䍬潬敳牐景瑩洽摯汥朮瑥汃獯健潲楦側灩⡳㬩਍†搠畯汢⁥摥敧楄晦楐獰椽摮桓牡⹥敧側楲散桃卬浵摅敧楄晦楐獰猨浹潢䥬摮硥㬩਍†ഠ †潤扵敬猠浵畊灭楐獰椽摮桓牡⹥敧側楲散桃卬浵摅敧楄晦楐獰猨浹潢䥬摮硥㬩਍†搠畯汢⁥畳䕭杤剥瑡㵥湩卤慨敲朮瑥牐捩䍥汨畓䕭杤剥瑡⡥祳扭汯湉敤⥸※††਍†ഠ †潤扵敬猠牴湥瑧剨瑡㉥䴽瑡䅨獢猨浵畊灭楐獰ㄯ〰㬩਍†搠畯汢⁥硥整摮慒整䴽瑡䅨獢⠨畳䩭浵偰灩⽳〱⤰猫浵摅敧慒整⴩則䑉䍟佌䕓䑟䙉彆塅䕔䑎䉟䝅义剟呁㭅਍†ഠ †晩猨牴湥瑧剨瑡㉥㌾笩਍†††潭敤䍬潬敳牐景瑩⠽潭敤䍬潬敳牐景瑩䜪䥒彄䱃协彅剂䅅彋塅䕔䑎剟呁⥅഻ ††椠⡦硥整摮慒整ㄾ笩਍††††攠瑸湥剤瑡㵥潣䙭湵⹣硥整摮慖畬⡥硥整摮慒整䜬䥒彄䱃协彅䥄䙆䕟员久彄䱐单剟呁⥅഻ ††††潭敤䍬潬敳牐景瑩洽摯汥汃獯健潲楦⩴硥整摮慒整഻ ††素†ഠ †ൽഊ †晩爨敫䱥杯搮扥杵敐楲摯㤨㤰ⰱ〶⤩⁻†਍†††⼯歲敥潌⹧牷瑩䱥杯挨浯畆据朮瑥慄整奟奙䵙䑍䡄䵈㉍⤨氫杯敔灭∬敤畢䱧杯㄰⤢഻ ††⼠瀯楲瑮⡦潬呧浥⥰഻ ††搠瑡瑥浩⁥ㅴ吽浩䍥牵敲瑮⤨഻ ††搠畯汢⁥㵡㬰਍†素਍਍†氠杯慄慴愮摤敄畢䥧普⡯㰢潭敤䥬㹤•‫潭敤⹬敧䵴摯汥摉⤨਍†††††††††††††⬠∠猼浵畊灭楐獰∾⬠匠牴湩䙧牯慭⡴┢㈮≦猬浵畊灭楐獰 ††††††††††††††ഠ †††††††††††††‫㰢潭敤偬潲楦㹴•‫瑓楲杮潆浲瑡∨⸥昲Ⱒ潭敤偬潲楦⥴਍†††††††††††††⬠∠洼摯汥汃獯健潲楦㹴•‫瑓楲杮潆浲瑡∨⸥昲Ⱒ潭敤䍬潬敳牐景瑩ഩ †††††††††††††‫㰢硥整摮慒整∾⬠匠牴湩䙧牯慭⡴┢㈮≦攬瑸湥剤瑡⥥㬩਍਍†戠潯⁬敲噴污敵琽畲㭥†††਍†椠⡦潭敤偬潲楦㱴潭敤䍬潬敳牐景瑩笩਍†††晩猨浵畊灭楐獰ㄾ〰☠…潭敤⹬敧呴慲敤祔数⤨㴽剏䕄归奔䕐䉟奕笩††††ഠ ††††敲噴污敵昽污敳഻ ††素汥敳椠⡦畳䩭浵偰灩㱳ㄭ〰☠…潭敤⹬敧呴慲敤祔数⤨㴽剏䕄归奔䕐卟䱅⥌ൻ ††††敲噴污敵昽污敳഻ ††素਍†素਍†ഠ †潬䑧瑡⹡摡䑤扥杵湉潦∨爼瑥牵㹮⬢敲噴污敵∫⼼䙃汩整䍲潬敳㈰洭摯汥∾㬩਍†ഠ †敲畴湲爠瑥慖畬㭥†ഠ †਍ൽഊഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†番杤⁥晩攠杤⁥牢慥⁫汣獯൥⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ戊潯⁬䌠楆瑬牥汃獯づ㨲攺杤䉥敲歡汃獯⡥䵃摯汥⩉洠摯汥ബ ††††††††††††††††††††††湩⁴祳扭汯湉敤ⱸ਍††††††††††††††††††††††䔠啎彍剏䕄归奔䕐琠灹ⱥ਍††††††††††††††††††††††椠瑮挠汨湉敤ⱸ਍††††††††††††††††††††††搠畯汢⁥慭䕸杤剥瑡ⱥ਍††††††††††††††††††††††搠畯汢⁥楬業䉴敲歡楐獰笩਍†ഠ †偃楲散桃卬慴畴⩳†牰捩䍥汨瑓瑡獵琽楨⹳敧䥴摮桓牡⡥⸩敧側楲散桃湡敮卬慴畴㉳猨浹潢䥬摮硥㬩਍†搠畯汢⁥摥敧慒整瀽楲散桃卬慴畴⹳敧䕴杤剥瑡⡥档䥬摮硥〬㬩†ഠ †潤扵敬攠杤䑥晩偦灩㵳牰捩䍥汨瑓瑡獵朮瑥摅敧牂䑫晩偦灩⡳档䥬摮硥㬩†ഠ †潤扵敬挠潬敳牐景瑩慒整䴽瑡䅨獢攨杤䑥晩偦灩⥳㔯㬰਍†搠畯汢⁥潭敤䍬潬敳牐景瑩洽摯汥朮瑥汃獯健潲楦側灩⡳⨩汣獯健潲楦剴瑡㭥਍†椠⡦祴数㴽剏䕄归奔䕐䉟奕笩਍†††椠⡦摥敧慒整㴾慭䕸杤剥瑡⁥਍††††††☦攠杤䑥晩偦灩㹳楬業䉴敲歡楐獰笩††††ഠ ††††晩洨摯汥朮瑥牐景瑩楐獰⤨洼摯汥汃獯健潲楦⥴ൻ †††††爠瑥牵⁮慦獬㭥਍††††素਍†††素਍†素汥敳ൻ ††椠⡦摥敧慒整㴼洭硡摅敧慒整ഠ ††††☦攠杤䑥晩偦灩㱳氭浩瑩牂慥偫灩⥳ൻ ††††晩洨摯汥朮瑥牐景瑩楐獰⤨洼摯汥汃獯健潲楦⥴ൻ †††††爠瑥牵⁮慦獬㭥†ഠ ††††ൽ ††素਍†素ഠ †敲畴湲琠畲㭥†ഠ紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼映汩整⁲桴⁥汣獯⁥牯敤൲⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ戊潯⁬䙃汩整䍲潬敳㈰㨺汣獯䙥汩整⡲佃摲牥‪牯敤⥲਍ൻ †敲畴湲琠畲㭥਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†汣獡⁳潣獮牴捵潴⁲†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䙃汩整䍲潬敳㈰㨺䙃汩整䍲潬敳㈰⤨絻਍䙃汩整䍲潬敳㈰㨺䍾楆瑬牥汃獯づ⠲笩਍ൽ 
+//+------------------------------------------------------------------+
+//|                                                CFilterClose02I.mqh |
+//+------------------------------------------------------------------+
+#property version   "1.00"
+
+#include "../CModelFilter.mqh"
+
+class CFilterClose02: public CModelFilter 
+{
+      public:
+                      CFilterClose02();
+                      ~CFilterClose02();                      
+               bool   closeFilter(CModelI* model);
+               bool   closeFilter(COrder* order);               
+               bool   edgeBreakClose(CModelI* model,
+                                          int symbolIndex,
+                                          ENUM_ORDER_TYPE type,
+                                          int chlIndex,
+                                          double maxEdgeRate,
+                                          double limitBreakPips);
+};
+  
+
+//+------------------------------------------------------------------+
+//|  filter the close model
+//+------------------------------------------------------------------+
+bool CFilterClose02::closeFilter(CModelI* model)
+{
+   logData.addDebugInfo("<CFilterClose02-model>");
+   int symbolIndex=model.getSymbolIndex();
+   CIndicatorShare* indShare=this.getIndShare();
+   double strengthRate=indShare.getStrengthRate(symbolIndex);
+   double edgeRate=indShare.getEdgeRate(symbolIndex);
+   double sumRate=strengthRate+edgeRate;   
+  
+   double closeDiffExtendRate=GRID_CLOSE_DIFF_EXTEND_BEGIN_RATE;
+   
+   double modelProfit=model.getProfit();   
+   double modelCloseProfit=model.getCloseProfitPips();
+   double edgeDiffPips=indShare.getPriceChlSumEdgeDiffPips(symbolIndex);
+   
+   double sumJumpPips=indShare.getPriceChlSumEdgeDiffPips(symbolIndex);
+   double sumEdgeRate=indShare.getPriceChlSumEdgeRate(symbolIndex);     
+   
+   double strengthRate2=MathAbs(sumJumpPips/100);
+   double extendRate=MathAbs((sumJumpPips/100)+sumEdgeRate)-GRID_CLOSE_DIFF_EXTEND_BEGIN_RATE;
+   
+   if(strengthRate2>3){
+      modelCloseProfit=(modelCloseProfit*GRID_CLOSE_BREAK_EXTEND_RATE);
+      if(extendRate>1){
+         extendRate=comFunc.extendValue(extendRate,GRID_CLOSE_DIFF_EXTEND_PLUS_RATE);
+         modelCloseProfit=modelCloseProfit*extendRate;
+      }   
+   }
+
+   if(rkeeLog.debugPeriod(9091,60)){   
+      //rkeeLog.writeLog(comFunc.getDate_YYYYMMDDHHMM2()+logTemp,"debugLog01");
+      //printf(logTemp);
+      datetime t1=TimeCurrent();
+      double a=0;
+   }
+
+   logData.addDebugInfo("<modelId>" + model.getModelId()
+                           + "<sumJumpPips>" + StringFormat("%.2f",sumJumpPips)                              
+                           + "<modelProfit>" + StringFormat("%.2f",modelProfit)
+                           + "<modelCloseProfit>" + StringFormat("%.2f",modelCloseProfit)
+                           + "<extendRate>" + StringFormat("%.2f",extendRate));
+
+   bool retValue=true;      
+   if(modelProfit<modelCloseProfit){
+      if(sumJumpPips>100 && model.getTradeType()==ORDER_TYPE_BUY){         
+         retValue=false;
+      }else if(sumJumpPips<-100 && model.getTradeType()==ORDER_TYPE_SELL){
+         retValue=false;
+      }
+   }
+   
+   logData.addDebugInfo("<return>"+retValue+"</CFilterClose02-model>");
+   
+   return retValue;   
+   
+}
+
+
+//+------------------------------------------------------------------+
+//|  judge if edge break close
+//+------------------------------------------------------------------+
+bool  CFilterClose02::edgeBreakClose(CModelI* model,
+                                             int symbolIndex,
+                                             ENUM_ORDER_TYPE type,
+                                             int chlIndex,
+                                             double maxEdgeRate,
+                                             double limitBreakPips){
+   
+   CPriceChlStatus*  priceChlStatus=this.getIndShare().getPriceChannelStatus2(symbolIndex);
+   double edgeRate=priceChlStatus.getEdgeRate(chlIndex,0);   
+   double edgeDiffPips=priceChlStatus.getEdgeBrkDiffPips(chlIndex);   
+   double closeProfitRate=MathAbs(edgeDiffPips)/50;
+   double modelCloseProfit=model.getCloseProfitPips()*closeProfitRate;
+   if(type==ORDER_TYPE_BUY){
+       if(edgeRate>=maxEdgeRate 
+            && edgeDiffPips>limitBreakPips){         
+         if(model.getProfitPips()<modelCloseProfit){
+            return false;
+         }
+       }
+   }else{
+      if(edgeRate<=-maxEdgeRate 
+         && edgeDiffPips<-limitBreakPips){
+         if(model.getProfitPips()<modelCloseProfit){
+            return false;   
+         }
+      }
+   } 
+   return true;   
+}
+
+//+------------------------------------------------------------------+
+//|  filter the close order
+//+------------------------------------------------------------------+
+bool CFilterClose02::closeFilter(COrder* order)
+{
+   return true;
+}
+
+//+------------------------------------------------------------------+
+//|  class constructor   
+//+------------------------------------------------------------------+
+CFilterClose02::CFilterClose02(){}
+CFilterClose02::~CFilterClose02(){
+}
+ 

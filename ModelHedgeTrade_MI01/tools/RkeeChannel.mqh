@@ -1,4 +1,4 @@
-﻿﻿#include <MQL5Converter\Converter.mqh>
+﻿#include <MQL5Converter\Converter.mqh>
 //+------------------------------------------------------------------+
 //|                                                    RkeeInd01.mqh |
 //|                                    Copyright 2019,  NIHHO ROKKI. |
