@@ -1,1 +1,107 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼†††††††††††††††††††††††牐捩彥桃湡敮汬洮㕱簠਍⼯⁼††††††††††††††潃祰楲桧⁴〲〰㈭㈰ⰴ䴠瑥兡潵整⁳瑌⹤簠਍⼯⁼††††††††††††††††††††††瑨灴㩳⼯睷⹷煭㕬挮浯簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍瀣潲数瑲⁹潣祰楲桧⁴䌢灯特杩瑨㈠〰ⴰ〲㐲‬敍慴畑瑯獥䰠摴∮਍瀣潲数瑲⁹楬歮†††栢瑴獰⼺眯睷洮汱⸵潣≭਍⼯ⴭ‭湩楤慣潴⁲敳瑴湩獧਍瀣潲数瑲⁹湩楤慣潴彲档牡彴楷摮睯਍瀣潲数瑲⁹湩楤慣潴彲畢晦牥⁳ള⌊牰灯牥祴椠摮捩瑡牯灟潬獴†㈠਍瀣潲数瑲⁹湩楤慣潴彲祴数‱†剄坁䱟义⁅⼠ 뿤릔룤뾺鷦ඡ⌊牰灯牥祴椠摮捩瑡牯瑟灹㉥†䐠䅒彗䥌䕎਍瀣潲数瑲⁹湩楤慣潴彲潣潬ㅲ†潄杤牥求敵䜬慲൹⌊牰灯牥祴椠摮捩瑡牯损汯牯′䈠畬൥⌊牰灯牥祴椠摮捩瑡牯江扡汥‱∠桃湡敮⁬灵数㭲桃湡敮⁬潬敷≲਍瀣潲数瑲⁹湩楤慣潴彲慬敢㉬†䌢慨湮汥洠摥慩≮਍⼯ⴭ‭湩異⁴慰慲敭整獲਍湩異⁴湩⁴湉䍰慨湮汥敐楲摯㈽㬲⼠ 敐楲摯਍⼯ⴭ‭湩楤慣潴⁲畢晦牥൳搊畯汢⁥†䔠瑸楈桧畂晦牥嵛഻搊畯汢⁥†䔠瑸潌䉷晵敦孲㭝਍潤扵敬††硅䵴摩䉤晵敦孲㭝਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼畃瑳浯椠摮捩瑡牯椠楮楴污穩瑡潩⁮畦据楴湯††††††††††††簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩传䥮楮⡴ഩ 笠਍⼯ⴭ‭湩楤慣潴⁲畢晦牥⁳慭灰湩൧ †敓䥴摮硥畂晦牥〨䔬瑸楈桧畂晦牥䤬䑎䍉呁剏䑟呁⥁഻ †敓䥴摮硥畂晦牥ㄨ䔬瑸潌䉷晵敦Ⱳ义䥄䅃佔归䅄䅔㬩਍†匠瑥湉敤䉸晵敦⡲ⰲ硅䵴摩䉤晵敦Ⱳ义䥄䅃佔归䅄䅔㬩਍⼯ⴭ‭敳⁴捡畣慲祣਍†䤠摮捩瑡牯敓䥴瑮来牥䤨䑎䍉呁剏䑟䝉呉ⱓ䑟杩瑩⥳഻⼊⴯ⴭ猠瑥映物瑳戠牡映潲⁭桷瑡椠摮硥眠汩⁬敢搠慲湷਍†倠潬䥴摮硥敓䥴瑮来牥〨倬佌彔剄坁䉟䝅义䤬灮桃湡敮偬牥潩⥤഻ †汐瑯湉敤卸瑥湉整敧⡲ⰱ䱐呏䑟䅒彗䕂䥇ⱎ湉䍰慨湮汥敐楲摯㬩਍⼯ⴭ‭楬敮猠楨瑦⁳桷湥搠慲楷杮਍†倠潬䥴摮硥敓䥴瑮来牥〨倬佌彔䡓䙉ⱔ⤱഻ †汐瑯湉敤卸瑥湉整敧⡲ⰱ䱐呏卟䥈呆ㄬ㬩਍⼯ⴭ‭慮敭映牯䐠瑡坡湩潤⁷湡⁤湩楤慣潴⁲慬敢൬ †瑳楲杮猠潨瑲湟浡㵥瑓楲杮潆浲瑡∨牐捩⁥桃湡敮⡬搥∩䤬灮桃湡敮偬牥潩⥤഻ †湉楤慣潴卲瑥瑓楲杮䤨䑎䍉呁剏卟佈呒䅎䕍猬潨瑲湟浡⥥഻ †桳牯彴慮敭匽牴湩䙧牯慭⡴䌢慨湮汥┨⥤甠灰牥䌻慨湮汥┨⥤氠睯牥Ⱒ湉䍰慨湮汥敐楲摯䤬灮桃湡敮偬牥潩⥤഻ †汐瑯湉敤卸瑥瑓楲杮〨倬佌彔䅌䕂ⱌ桳牯彴慮敭㬩਍†猠潨瑲湟浡㵥瑓楲杮潆浲瑡∨敍楤湡┨⥤Ⱒ湉䍰慨湮汥敐楲摯㬩਍†倠潬䥴摮硥敓却牴湩⡧ⰱ䱐呏䱟䉁䱅猬潨瑲湟浡⥥഻⼊⴯ⴭ猠瑥搠慲楷杮氠湩⁥浥瑰⁹慶畬൥ †汐瑯湉敤卸瑥潄扵敬〨倬佌彔䵅呐彙䅖啌ⱅ⸰⤰഻ †汐瑯湉敤卸瑥潄扵敬ㄨ倬佌彔䵅呐彙䅖啌ⱅ⸰⤰഻ 素਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼牐捩⁥桃湡敮汬†††††††††††††††††††††††††簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍湩⁴湏慃捬汵瑡⡥潣獮⁴湩⁴慲整彳潴慴ⱬ਍††††††††潣獮⁴湩⁴牰癥损污畣慬整Ɽ਍††††††††潣獮⁴慤整楴敭☠楴敭嵛ബ †††††††挠湯瑳搠畯汢⁥漦数孮ⱝ਍††††††††潣獮⁴潤扵敬☠楨桧嵛ബ †††††††挠湯瑳搠畯汢⁥氦睯嵛ബ †††††††挠湯瑳搠畯汢⁥挦潬敳嵛ബ †††††††挠湯瑳氠湯⁧琦捩彫潶畬敭嵛ബ †††††††挠湯瑳氠湯⁧瘦汯浵孥ⱝ਍††††††††潣獮⁴湩⁴猦牰慥孤⥝਍†ൻ †晩爨瑡獥瑟瑯污䤼灮桃湡敮偬牥潩⥤਍†††敲畴湲〨㬩਍਍†椠瑮猠慴瑲഻⼊⴯ⴭ瀠敲楬業慮祲挠污畣慬楴湯൳ †晩瀨敲彶慣捬汵瑡摥㴽⤰਍†††瑳牡㵴湉䍰慨湮汥敐楲摯഻ †汥敳਍†††瑳牡㵴牰癥损污畣慬整ⵤ㬱਍⼯ⴭ‭桴⁥慭湩氠潯⁰景挠污畣慬楴湯൳ †潦⡲湩⁴㵩瑳牡㭴椠爼瑡獥瑟瑯污☠…䤡即潴灰摥⤨※⭩⤫਍††笠਍†††硅䡴杩䉨晵敦孲嵩䠽杩敨瑳栨杩ⱨ湉䍰慨湮汥敐楲摯椬㬩਍†††硅䱴睯畂晦牥楛㵝潌敷瑳氨睯䤬灮桃湡敮偬牥潩Ɽ⥩഻ ††䔠瑸楍摤畂晦牥楛㵝䔨瑸楈桧畂晦牥楛⭝硅䱴睯畂晦牥楛⥝㈯〮㬻਍††素਍⼯ⴭ‭湏慃捬汵瑡⁥潤敮‮敒畴湲渠睥瀠敲彶慣捬汵瑡摥മ †敲畴湲爨瑡獥瑟瑯污㬩਍†ൽ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯朠瑥栠杩敨瑳瘠污敵映牯爠湡敧†††††††††††††††††††ർ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ搊畯汢⁥楈桧獥⡴潣獮⁴潤扵敬…牡慲孹ⱝ潣獮⁴湩⁴慲杮ⱥ潣獮⁴湩⁴牦浯楟摮硥ഩ 笠਍†搠畯汢⁥敲㵳牡慲孹牦浯楟摮硥㭝਍†映牯椨瑮椠昽潲彭湩敤⵸㬱椠显潲彭湩敤⵸慲杮⁥☦椠㴾㬰椠ⴭഩ ††椠⡦敲㱳牡慲孹嵩ഩ ††††敲㵳牡慲孹嵩഻ †敲畴湲爨獥㬩਍†ൽ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯朠瑥氠睯獥⁴慶畬⁥潦⁲慲杮⁥†††††††††††††††††††ർ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ搊畯汢⁥潌敷瑳挨湯瑳搠畯汢♥愠牲祡嵛挬湯瑳椠瑮爠湡敧挬湯瑳椠瑮映潲彭湩敤⥸਍†ൻ †潤扵敬爠獥愽牲祡晛潲彭湩敤嵸഻ †潦⡲湩⁴㵩牦浯楟摮硥ㄭ※㹩牦浯楟摮硥爭湡敧☠…㹩〽※⵩⤭਍†††晩爨獥愾牲祡楛⥝਍††††爠獥愽牲祡楛㭝਍†爠瑥牵⡮敲⥳഻ 素਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍
+//+------------------------------------------------------------------+
+//|                                               Price_Channell.mq5 |
+//|                             Copyright 2000-2024, MetaQuotes Ltd. |
+//|                                             https://www.mql5.com |
+//+------------------------------------------------------------------+
+#property copyright "Copyright 2000-2024, MetaQuotes Ltd."
+#property link      "https://www.mql5.com"
+//--- indicator settings
+#property indicator_chart_window
+#property indicator_buffers 3
+#property indicator_plots   2
+#property indicator_type1   DRAW_LINE  // 修改为线条
+#property indicator_type2   DRAW_LINE
+#property indicator_color1  DodgerBlue,Gray
+#property indicator_color2  Blue
+#property indicator_label1  "Channel upper;Channel lower"
+#property indicator_label2  "Channel median"
+//--- input parameters
+input int InpChannelPeriod=22; // Period
+//--- indicator buffers
+double    ExtHighBuffer[];
+double    ExtLowBuffer[];
+double    ExtMiddBuffer[];
+//+------------------------------------------------------------------+
+//| Custom indicator initialization function                         |
+//+------------------------------------------------------------------+
+void OnInit()
+  {
+//--- indicator buffers mapping
+   SetIndexBuffer(0,ExtHighBuffer,INDICATOR_DATA);
+   SetIndexBuffer(1,ExtLowBuffer,INDICATOR_DATA);
+   SetIndexBuffer(2,ExtMiddBuffer,INDICATOR_DATA);
+//--- set accuracy
+   IndicatorSetInteger(INDICATOR_DIGITS,_Digits);
+//--- set first bar from what index will be drawn
+   PlotIndexSetInteger(0,PLOT_DRAW_BEGIN,InpChannelPeriod);
+   PlotIndexSetInteger(1,PLOT_DRAW_BEGIN,InpChannelPeriod);
+//--- line shifts when drawing
+   PlotIndexSetInteger(0,PLOT_SHIFT,1);
+   PlotIndexSetInteger(1,PLOT_SHIFT,1);
+//--- name for DataWindow and indicator label
+   string short_name=StringFormat("Price Channel(%d)",InpChannelPeriod);
+   IndicatorSetString(INDICATOR_SHORTNAME,short_name);
+   short_name=StringFormat("Channel(%d) upper;Channel(%d) lower",InpChannelPeriod,InpChannelPeriod);
+   PlotIndexSetString(0,PLOT_LABEL,short_name);
+   short_name=StringFormat("Median(%d)",InpChannelPeriod);
+   PlotIndexSetString(1,PLOT_LABEL,short_name);
+//--- set drawing line empty value
+   PlotIndexSetDouble(0,PLOT_EMPTY_VALUE,0.0);
+   PlotIndexSetDouble(1,PLOT_EMPTY_VALUE,0.0);
+  }
+//+------------------------------------------------------------------+
+//| Price Channell                                                   |
+//+------------------------------------------------------------------+
+int OnCalculate(const int rates_total,
+                const int prev_calculated,
+                const datetime &time[],
+                const double &open[],
+                const double &high[],
+                const double &low[],
+                const double &close[],
+                const long &tick_volume[],
+                const long &volume[],
+                const int &spread[])
+  {
+   if(rates_total<InpChannelPeriod)
+      return(0);
+
+   int start;
+//--- preliminary calculations
+   if(prev_calculated==0)
+      start=InpChannelPeriod;
+   else
+      start=prev_calculated-1;
+//--- the main loop of calculations
+   for(int i=start; i<rates_total && !IsStopped(); i++)
+     {
+      ExtHighBuffer[i]=Highest(high,InpChannelPeriod,i);
+      ExtLowBuffer[i]=Lowest(low,InpChannelPeriod,i);
+      ExtMiddBuffer[i]=(ExtHighBuffer[i]+ExtLowBuffer[i])/2.0;;
+     }
+//--- OnCalculate done. Return new prev_calculated.
+   return(rates_total);
+  }
+//+------------------------------------------------------------------+
+//| get highest value for range                                      |
+//+------------------------------------------------------------------+
+double Highest(const double& array[],const int range,const int from_index)
+  {
+   double res=array[from_index];
+   for(int i=from_index-1; i>from_index-range && i>=0; i--)
+      if(res<array[i])
+         res=array[i];
+   return(res);
+  }
+//+------------------------------------------------------------------+
+//| get lowest value for range                                       |
+//+------------------------------------------------------------------+
+double Lowest(const double& array[],const int range,const int from_index)
+  {
+   double res=array[from_index];
+   for(int i=from_index-1; i>from_index-range && i>=0; i--)
+      if(res>array[i])
+         res=array[i];
+   return(res);
+  }
+//+------------------------------------------------------------------+

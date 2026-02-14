@@ -1,1 +1,67 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼†††††††††††††††††††††††䌠楆瑬牥灏湥㈰⹉煭⁨ർ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⌊牰灯牥祴瘠牥楳湯†∠⸱〰ഢഊ⌊湩汣摵⁥⸢⼮䵃摯汥湉楤慣潴䙲汩整⹲煭≨਍਍汣獡⁳䙃汩整佲数の㨲瀠扵楬⁣䵃摯汥湉楤慣潴䙲汩整⁲਍ൻ ††瀠扵楬㩣਍††††††††䙃汩整佲数の⠲㬩਍††††††††䍾楆瑬牥灏湥㈰⤨※††††††††††ഠ ††††潢汯†漠数䙮汩整⡲千杩慮⩬猠杩慮⥬഻ഊ紊഻ഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†楦瑬牥琠敨挠潬敳洠摯汥਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潢汯䌠楆瑬牥灏湥㈰㨺灯湥楆瑬牥䌨楓湧污‪楳湧污ഩ笊਍†††਍†††਍†爠瑥牵⁮牴敵഻ †⨯਍†戠潯⁬摥敧牂慥䙫杬‽桴獩攮杤䉥敲歡敔摮猨杩慮⹬敧却浹潢䥬摮硥⤨ബ †††††††††††猠杩慮⹬敧呴慲敤祔数⤨ബ †††††††††††䜠䥒彄偏久弲䥆呌剅䕟䝄彅义䕄ⱘ਍††††††††††††則䑉佟䕐㉎䵟塁䕟䝄彅䅒䕔ബ †††††††††††䜠䥒彄偏久弲䥌䥍彔剂彋䥐卐㬩਍††††††††††††਍†椠⡦歲敥潌⹧敤畢偧牥潩⡤ ☦攠杤䉥敲歡汆⥧ൻ ††戠潯⁬整瑳㴱牴敵഻ †⩽യ ഠ †⼯敲畴湲攠杤䉥敲歡汆㭧਍਍†搠畯汢⁥畳䩭浵偰灩㵳桴獩朮瑥湉卤慨敲⤨朮瑥牐捩䍥汨畓䕭杤䑥晩偦灩⡳楳湧污朮瑥祓扭汯湉敤⡸⤩഻ †潤扵敬猠浵摅敧慒整琽楨⹳敧䥴摮桓牡⡥⸩敧側楲散桃卬浵摅敧慒整猨杩慮⹬敧却浹潢䥬摮硥⤨㬩਍਍†搠畯汢⁥畳剭瑡㵥畳䩭浵偰灩⽳〱⬰畳䕭杤剥瑡㭥਍†搠畯汢⁥瑳敲杮桴慒整猽浵畊灭楐獰ㄯ〰഻ †਍†䔠啎彍剏䕄归奔䕐琠灹㵥楳湧污朮瑥牔摡呥灹⡥㬩†ഠ †晩䴨瑡䅨獢猨浵畊灭楐獰㰩〵⤰⁻†਍†††晩琨灹㵥伽䑒剅呟偙彅啂⥙ൻ ††††晩猨浵慒整〼☠…畳剭瑡㹥㌭⤰敲畴湲琠畲㭥਍†††敽獬筥਍††††椠⡦畳剭瑡㹥‰☦猠浵慒整㌼⤰敲畴湲琠畲㭥਍†††⁽††††਍†素汥敳ൻ ††椠⡦祴数㴽剏䕄归奔䕐䉟奕笩਍††††椠⡦畳剭瑡㹥㔲爩瑥牵⁮牴敵഻ ††素汥敳ൻ ††††晩猨浵慒整ⴼ㔲爩瑥牵⁮牴敵഻ ††素†††਍†素਍†爠瑥牵⁮慦獬㭥਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†汣獡⁳潣獮牴捵潴⁲†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䙃汩整佲数の㨲䌺楆瑬牥灏湥㈰⤨絻਍䙃汩整佲数の㨲縺䙃汩整佲数の⠲笩਍ൽ 
+//+------------------------------------------------------------------+
+//|                                                CFilterOpen02I.mqh |
+//+------------------------------------------------------------------+
+#property version   "1.00"
+
+#include "../CModelIndicatorFilter.mqh"
+
+class CFilterOpen02: public CModelIndicatorFilter 
+{
+      public:
+                CFilterOpen02();
+                ~CFilterOpen02();                      
+         bool   openFilter(CSignal* signal);
+
+};
+
+//+------------------------------------------------------------------+
+//|  filter the close model
+//+------------------------------------------------------------------+
+bool CFilterOpen02::openFilter(CSignal* signal)
+{
+      
+      
+   return true;
+   /*
+   bool edgeBreakFlg= this.edgeBreakTend(signal.getSymbolIndex(),
+                        signal.getTradeType(),
+                        GRID_OPEN2_FILTER_EDGE_INDEX,
+                        GRID_OPEN2_MAX_EDGE_RATE,
+                        GRID_OPEN2_LIMIT_BRK_PIPS);
+                        
+   if(rkeeLog.debugPeriod() && edgeBreakFlg){
+      bool test1=true;
+   }*/
+  
+   //return edgeBreakFlg;
+
+   double sumJumpPips=this.getIndShare().getPriceChlSumEdgeDiffPips(signal.getSymbolIndex());
+   double sumEdgeRate=this.getIndShare().getPriceChlSumEdgeRate(signal.getSymbolIndex());
+
+   double sumRate=sumJumpPips/100+sumEdgeRate;
+   double strengthRate=sumJumpPips/100;
+   
+   ENUM_ORDER_TYPE type=signal.getTradeType();   
+   if(MathAbs(sumJumpPips)<500){   
+      if(type==ORDER_TYPE_BUY){
+         if(sumRate<0 && sumRate>-30)return true;
+      }else{
+         if(sumRate>0 && sumRate<30)return true;
+      }         
+   }else{
+      if(type==ORDER_TYPE_BUY){
+         if(sumRate>25)return true;
+      }else{
+         if(sumRate<-25)return true;
+      }      
+   }
+   return false;
+}
+
+//+------------------------------------------------------------------+
+//|  class constructor   
+//+------------------------------------------------------------------+
+CFilterOpen02::CFilterOpen02(){}
+CFilterOpen02::~CFilterOpen02(){
+}
+ 

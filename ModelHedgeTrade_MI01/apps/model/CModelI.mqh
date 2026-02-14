@@ -1,1 +1,90 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼††††††††††††††††††††††††††䌠潍敤䥬洮桱簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍瀣潲数瑲⁹敶獲潩⁮†ㄢ〮∰਍਍⼯椣据畬敤∠⸮猯慨敲栯摥敧䌯效杤䝥潲灵洮桱ഢ⌊湩汣摵⁥⸢⼮桳牡⽥潭敤⽬牯敤⽲佃摲牥洮桱ഢ⌊湩汣摵⁥⸢⼮桳牡⽥楳湧污䌯楓湧污洮桱ഢഊ椊瑮牥慦散䌠潍敤䥬਍†ൻ ഠ †異汢捩ഺ ††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍††⼠簯†湩整晲捡⁥畦据楴湯਍††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫†††਍†††⼯ⴭ‭湩整晲捡⁥畦据楴湯†਍†††潶摩††爠汥慯⡤㬩††††⼠爯汥慯⁤牯敤⁲牦浯琠敨洠牡敫൴ ††瘠楯⁤††畲⡮㬩††††††⼯潭敤⁬畲൮ ††瘠楯⁤††敲牦獥⡨㬩††††⼯潭敤⁬敲挭污畣慬整਍†††潶摩††挠敬湡⤨※††††⼠振敬湡洠摯汥਍†††佃摲牥‪挠敲瑡佥摲牥⤨※†⼠振敲瑡⁥牯敤⁲††ഠ ††瘠楯⁤††灯湥潍敤⡬㬩†††⼯灯湥洠摯汥਍†††潢汯††攠瑸湥䵤摯汥⤨※†⼠支瑸湥⁤潭敤൬ ††戠潯⁬††湥扡敬硅整摮⤨※†⼯晩攠慮汢⁥硥整摮洠摯汥਍†††潢汯††挠潬敳潍敤⡬㬩††⼠振潬敳洠摯汥਍†††潢汯††攠慮汢䍥潬敳⤨※†⼠椯⁦湥扡敬挠潬敳洠摯汥਍†††潢汯††挠敬牡潍敤⡬㬩††⼠振敬牡洠摯汥⠠楲歳瀠潲整瑣ഩ ††椠瑮†††汣獯佥摲牥⡳㬩††⼯汣獯⁥牯敤獲਍†††潢汯††爠獩偫潲整瑣⤨※†⼠樯摵敧椠⁦敮摥琠⁯牰瑯捥൴ ††ഠ ††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ ††⼠簯†敧⹴敳⁴潭敤⁬慰慲൭ ††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ ††猠牴湩⁧††敧却浹潢⡬㬩†††††⼯敧⁴潭敤⁬祳扭汯਍†††湩⁴†††朠瑥祓扭汯湉敤⡸㬩††⼠术瑥洠摯汥猠浹潢⁬湉敤൸ ††䔠啎彍剏䕄归奔䕐朠瑥牔摡呥灹⡥㬩†⼯敧⁴潭敤⁬牴摡⁥祴数਍†††潤扵敬††朠瑥瑓牡䱴湩⡥㬩†††⼠术瑥洠摯汥猠慴瑲瀠楲散氠湩൥ ††椠瑮††††敧䵴摯汥楋摮⤨※†††⼯敧⁴潭敤⁬楫摮਍†††汵湯⁧††朠瑥潍敤䥬⡤㬩††††⼠术瑥洠摯汥椠⁤ഠ ††椠瑮††††敧䵴摯汥瑓瑡獵⤨※††⼯敧⁴潭敤⁬瑳瑡獵†††††਍†††湩⁴†††朠瑥牏敤䍲畯瑮⤨※††⼠术瑥漠摲牥挠畯瑮਍†††佃摲牥‪†朠瑥牏敤⡲湩⁴湩敤⥸※††††⼯敧⁴牯敤⁲祢漠摲牥椠摮硥ഠ ††瘠楯⁤†††摡佤摲牥䌨牏敤⩲漠摲牥㬩††⼠愯摤漠摲牥琠⁯桴⁥牯敤卲瑥਍†††潶摩†††猠瑥祓扭汯猨牴湩⁧慶畬⥥※††⼯敳⁴潭敤⁬祳扭汯਍†††潶摩†††猠瑥潍敤䭬湩⡤湩⁴慶畬⥥※††⼯敳⁴潭敤⁬楫摮਍†††潶摩†††猠瑥潍敤䥬⡤汵湯⁧慶畬⥥※††⼯敳⁴潭敤⁬摩਍†††潶摩†††猠瑥潍敤卬慴畴⡳湩⁴慶畬⥥※†⼯敳⁴潭敤⁬瑳瑡獵਍†††潤扵敬††朠瑥祓扭汯牐捩⡥㬩††††††⼯敧⁴潭敤⁬祳扭汯瀠楲散਍†††潤扵敬††朠瑥祓扭汯潐湩⡴㬩††††††⼯敧⁴潭敤⁬祳扭汯瀠楯瑮਍†††潤扵敬††朠瑥牐景瑩楐獰⤨※††††††⼯敧⁴潭敤⁬牰景瑩瀠灩൳ ††搠畯汢⁥††敧側潲楦䵴硡楐獰⤨※††††⼠术瑥洠摯汥瀠潲楦⁴慭⁸楰獰਍†††潤扵敬††朠瑥牐景瑩楍偮灩⡳㬩†††††⼯敧⁴潭敤⁬牰景瑩洠湩瀠灩⁳††ഠ ††搠瑡瑥浩⁥†敧側潲楦䵴硡楔敭⤨※††††⼠琯敨琠浩⁥景洠摯汥瀠潲楦⁴慭⁸楰獰਍†††慤整楴敭†朠瑥牐景瑩楍呮浩⡥㬩†††††⼯桴⁥楴敭漠⁦潭敤⁬牰景瑩洠湩瀠灩⁳†††††††਍†††潤扵敬††朠瑥瑓灯潌獳楐獰⤨※†††††⼯敧⁴潭敤⁬瑳灯氠獯⁳楰獰਍†††潤扵敬††朠瑥汃獯健潲楦側灩⡳㬩††††⼯敧⁴潭敤⁬汣獯⁥牰景瑩瀠灩൳ ††搠畯汢⁥††敧䅴杶牐捩⡥㬩†††††††⼠术瑥朠楲⁤潭敤⁬癡⁧牰捩⡥污⁬牯敤獲 †††ഠ ††猠牴湩⁧††敧䅴瑣潩䙮杬⤨※††††††⼠术瑥愠瑣潩⁮汦条਍†††潶摩†††猠瑥捁楴湯汆⡧瑳楲杮瘠污敵㬩†⼯敳⁴捡楴湯映慬⁧਍†††湩⁴†††洠牡䍫敬牡汆条戨潯⁬慶畬⥥※†⼯洠牡⁫桴⁥汣慥⁲汦条漠⁦污⁬桴⁥牯敤獲ഠ ††戠潯⁬†††敧䍴敬牡汆条⤨※††††††⼠ 敧⁴潭敤⁬汣慥⁲汦条਍†††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍†††⼯⁼洠摯汥椠普൯ ††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫††ഠ ††⼠䌯效杤䝥潲灵‪†敧䡴摥敧片畯⡰㬩†⼯敧⁴敨杤⁥牧畯⁰ഠ ††猠牴湩⁧††††潭敤䥬普⡯㬩਍†††潤扵敬††††朠瑥牐景瑩⤨഻ ††搠畯汢⁥††††敧䱴瑯⤨഻ ††搠瑡瑥浩⁥†††敧呴慲敤楔敭⤨഻ ††瘠楯⁤†††††敳呴慲敤楔敭搨瑡瑥浩⁥慶畬⥥഻ ††搠瑡瑥浩⁥†††敧却慴瑲楔敭⤨഻ ††瘠楯⁤†††††敳却慴瑲楔敭搨瑡瑥浩⁥慶畬⥥഻ ††ഠ ††⼠ 敧⁴瑳瑡獵椠摮硥਍†††湩⁴朠瑥瑓瑡獵湉敤⡸㬩਍†††潶摩猠瑥瑓瑡獵湉敤⡸湩⁴慶畬⥥഻ ††椠瑮†敧䱴獡却慴畴䥳摮硥⤨഻ ††瘠楯⁤敳䱴獡却慴畴䥳摮硥椨瑮瘠污敵㬩਍†††਍†††⼯朠瑥猯瑥猠慴畴⁳汦条਍†††湩⁴朠瑥瑓瑡獵汆⡧㬩਍†††潶摩猠瑥瑓瑡獵汆⡧湩⁴慶畬⥥※††ഠ ††椠瑮†敧䱴獡却慴畴䙳杬⤨഻ ††瘠楯⁤敳䱴獡却慴畴䙳杬椨瑮瘠污敵㬩਍†††਍†††⼯敳⁴硥整摮删瑡൥ ††瘠楯⁤†猠瑥硅整摮慒整搨畯汢⁥慶畬⥥഻ ††搠畯汢⁥朠瑥硅整摮慒整⤨഻ 素�
+//+------------------------------------------------------------------+
+//|                                                      CModelI.mqh |
+//+------------------------------------------------------------------+
+#property version   "1.00"
+
+//#include "../share/hedge/CHedgeGroup.mqh"
+#include "../share/model/order/COrder.mqh"
+#include "../share/signal/CSignal.mqh"
+
+interface CModelI
+  {
+  
+   public:
+     //+------------------------------------------------------------------+
+     //|  interface function
+     //+------------------------------------------------------------------+       
+      //--- interface function  
+      void     reload();         //reload order from the market
+      void     run();            //model run
+      void     refresh();        //model re-calculate
+      void     clean();          //clean model
+      COrder*  createOrder();    //create order      
+      void     openModel();      //open model
+      bool     extendModel();    //extend model
+      bool     enableExtend();   //if enable extend model
+      bool     closeModel();     //close model
+      bool     enableClose();    //if enable close model
+      bool     clearModel();     //clear model (risk protect)
+      int      closeOrders();    //close orders
+      bool     riskProtect();    //judge if need to protect
+      
+      //+------------------------------------------------------------------+
+      //|  get.set model param
+      //+------------------------------------------------------------------+
+      string     getSymbol();          //get model symbol
+      int        getSymbolIndex();     //get model symbol Index
+      ENUM_ORDER_TYPE getTradeType();  //get model trade type
+      double     getStartLine();       //get model start price line
+      int        getModelKind();       //get model kind
+      ulong      getModelId();         //get model id  
+      int        getModelStatus();     //get model status          
+      int        getOrderCount();      //get order count
+      COrder*    getOrder(int index);         //get order by order index 
+      void       addOrder(COrder* order);     //add order to the orderSet
+      void       setSymbol(string value);     //set model symbol
+      void       setModelKind(int value);     //set model kind
+      void       setModelId(ulong value);     //set model id
+      void       setModelStatus(int value);   //set model status
+      double     getSymbolPrice();            //get model symbol price
+      double     getSymbolPoint();            //get model symbol point
+      double     getProfitPips();             //get model profit pips
+      double     getProfitMaxPips();          //get model profit max pips
+      double     getProfitMinPips();          //get model profit min pips      
+      datetime   getProfitMaxTime();          //the time of model profit max pips
+      datetime   getProfitMinTime();          //the time of model profit min pips               
+      double     getStopLossPips();           //get model stop loss pips
+      double     getCloseProfitPips();        //get model close profit pips
+      double     getAvgPrice();               //get grid model avg price(all orders)        
+      string     getActionFlg();              //get action flag
+      void       setActionFlg(string value);  //set action flag 
+      int        markClearFlag(bool value);   // mark the clear flag of all the orders 
+      bool       getClearFlag();              // get model clear flag
+      //+------------------------------------------------------------------+
+      //|  model info
+      //+------------------------------------------------------------------+      
+      //CHedgeGroup*   getHedgeGroup();  //get hedge group  
+      string         modelInfo();
+      double         getProfit();
+      double         getLot();
+      datetime       getTradeTime();
+      void           setTradeTime(datetime value);
+      datetime       getStartTime();
+      void           setStartTime(datetime value);
+      
+      // get status index
+      int  getStatusIndex();
+      void setStatusIndex(int value);
+      int  getLastStatusIndex();
+      void setLastStatusIndex(int value);
+      
+      // get/set status flag
+      int  getStatusFlg();
+      void setStatusFlg(int value);      
+      int  getLastStatusFlg();
+      void setLastStatusFlg(int value);
+      
+      //set extend Rate
+      void    setExtendRate(double value);
+      double  getExtendRate();
+  };

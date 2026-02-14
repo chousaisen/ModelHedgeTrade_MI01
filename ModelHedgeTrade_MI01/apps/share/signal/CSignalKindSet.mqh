@@ -1,1 +1,131 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼†††††††††††††††††††††††匠杩慮呬浩卥瑥洮桱簠਍⼯⁼†††††††††††††††††ർ⼊簯††††††††††††††††††††††ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⌊牰灯牥祴挠灯特杩瑨∠ഢ⌊牰灯牥祴氠湩⁫††∠瑨灴㩳⼯睷⹷煭㕬挮浯ഢ⌊牰灯牥祴瘠牥楳湯†∠⸱〰ഢഊ⌊湩汣摵⁥䜼湥牥捩䅜牲祡楌瑳洮桱ാ⌊湩汣摵⁥䜼湥牥捩䡜獡䵨灡洮桱ാ⌊湩汣摵⁥䌢楓湧污洮桱ഢ⌊湩汣摵⁥䌢楓湧污楌瑳洮桱ഢ⌊湩汣摵⁥䌢楓湧污楔敭敓⹴煭≨਍਍汣獡⁳千杩慮䭬湩卤瑥਍†ൻ瀊扵楬㩣਍†††湩⁴楳湧污楋摮※⼠ 祔数漠⁦楳湧污਍†††汵湯⁧敳畱湥散※⼠ 敓畱湥散渠浵敢⁲潦⁲楳湧污൳ ††䌠慈桳慍㱰湩ⱴ千杩慮呬浩卥瑥㸪猠杩慮䭬湩卤瑥※⼯䠠獡⁨慭⁰瑳牯湩⁧楳湧污欠湩⁤敳獴਍†††⼯楳湧污欠湩⁤楬瑳਍†††䅃牲祡楌瑳椼瑮‾楳湧污楋摮楌瑳※†††ഠ瀊扵楬㩣਍†††⼯䌠湯瑳畲瑣牯›湩瑩慩楬敺⁳楳湧污楋摮敓൴ ††䌠楓湧污楋摮敓⡴㬩਍†††਍†††⼯䌠湯瑳畲瑣牯›湩瑩慩楬敺⁳楷桴愠猠数楣楦⁣楳湧污欠湩൤ ††䌠楓湧污楋摮敓⡴湩⁴楳湧污楋摮㬩਍†††਍†††⼯䐠獥牴捵潴㩲挠敬牡⁳桴⁥楳湧污楋摮敓൴ ††䍾楓湧污楋摮敓⡴㬩††ഠ ††਍†††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍†††⼯⁼敇⁴桴⁥楳湧污琠浩⁥敳⁴潦⁲⁡灳捥晩捩欠湩൤ ††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫†††††ഠ ††戠潯⁬敧却杩慮呬浩卥瑥椨瑮欠湩Ɽ千杩慮呬浩卥瑥⨠猦杩慮呬浩卥瑥笩਍††††爠瑥牵⁮桴獩献杩慮䭬湩卤瑥吮祲敇噴污敵欨湩Ɽ楳湧污楔敭敓⥴഻ ††素਍†††਍†††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍†††⼯⁼敇⁴牯挠敲瑡⁥⁡楳湧污琠浩⁥敳⁴潦⁲⁡灳捥晩捩欠湩൤ ††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫†††††ഠ ††䌠楓湧污楔敭敓⩴朠瑥楓湧污楔敭敓⡴湩⁴楫摮笩††††ഠ ††††千杩慮呬浩卥瑥⨠楳湧污楔敭敓㭴਍††††椠⡦朡瑥楓湧污楔敭敓⡴楫摮猬杩慮呬浩卥瑥⤩ൻ †††††猠杩慮呬浩卥瑥渽睥䌠楓湧污楔敭敓⡴㬩†⼠ 牃慥整愠渠睥猠杩慮⁬楴敭猠瑥椠⁦潮⁴潦湵൤ †††††琠楨⹳楳湧污楋摮敓⹴摁⡤楫摮猬杩慮呬浩卥瑥㬩†⼠ 摁⁤桴⁥敮⁷敳⁴潴琠敨栠獡⁨慭൰ †††††琠楨⹳楳湧污楋摮楌瑳䄮摤欨湩⥤഻ ††††ൽ ††††敲畴湲猠杩慮呬浩卥瑥※†††਍†††⁽ഠ ††ഠ ††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ ††⼠簯䜠瑥琠敨猠杩慮⁬楬瑳映牯愠猠数楣楦⁣楫摮愠摮搠祡਍†††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭†††਍†††千杩慮䱬獩⩴朠瑥楓湧污楌瑳椨瑮欠湩Ɽ湩⁴慤⥹ൻ ††††千杩慮呬浩卥瑥⨠楳湧污楔敭敓㵴敧却杩慮呬浩卥瑥搨祡㬩਍††††椠⡦楳湧污楔敭敓ⅴ丽䱕⥌ൻ †††††爠瑥牵⁮楳湧污楔敭敓⹴敧却杩慮䱬獩⡴慤⥹※†⼯删瑥楲癥⁥楳湧污氠獩⁴晩琠敨琠浩⁥敳⁴獩愠慶汩扡敬††††ഠ ††††ൽ ††††敲畴湲丠䱕㭌⼠ 敒畴湲丠䱕⁌晩渠瑯映畯摮਍†††ൽഊ ††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ ††⼠簯䄠摤愠猠杩慮⁬潴琠敨猠杩慮⁬楬瑳映牯愠猠数楣楦⁣楫摮愠摮搠祡਍†††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭†††਍†††潶摩愠摤楓湧污楌瑳椨瑮欠湩Ɽ湩⁴慤ⱹ千杩慮⁬猪杩慮⥬ൻ ††††⼯潣䙭湵⹣牰湩晴⡳愢摤楓湧污楌瑳搠祡∺⬠∠欠湩㩤•‫楫摮㬩਍††††䌠楓湧污楌瑳⨠楳湧污楌瑳琽楨⹳敧却杩慮䱬獩⡴楫摮搬祡㬩਍††††椠⡦楳湧污楌瑳㴡啎䱌笩਍††††††楳湧污献瑥敓畱湥散木瑥楓湧污敓畱湥散⤨㬩†਍††††††楳湧污楌瑳愮摤猨杩慮⥬※⼠ 摁⁤楳湧污琠⁯桴⁥楬瑳††††਍††††素਍†††ൽ ††ഠ ††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ ††⼠簯䌠敬牡琠敨攠瑮物⁥楳湧污楋摮敓⁴慨桳洠灡਍†††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭†††਍†††潶摩挠敬牡⤨ൻ †††桴獩献杩慮䭬湩卤瑥䌮敬牡⤨഻ ††素਍†††਍†††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍†††⼯⁼敇敮慲整愠摮爠瑥牵⁮⁡湵煩敵猠煥敵据⁥畮扭牥映牯琠敨猠杩慮൬ ††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫††ഠ ††椠瑮朠瑥楓湧污敓畱湥散⤨⁻††††਍††††琠楨⹳敳畱湥散琽楨⹳敳畱湥散ㄫ※⼯䤠据敲敭瑮猠煥敵据൥ ††††湩⁴楳湧污敓畱湥散琽楨⹳楳湧污楋摮ㄪ〰〰〰⬰桴獩献煥敵据㭥ഠ ††††敲畴湲猠杩慮卬煥敵据㭥਍†††ൽ ††ഠ ††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ ††⼠簯匠瑥琠敨猠杩慮⁬楫摮਍†††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭†††਍†††潶摩猠瑥楓湧污楋摮椨瑮欠湩⥤瑻楨⹳楳湧污楋摮欽湩㭤⁽†††††††††††ഠ 素഻ ഠ ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯䌠湯瑳畲瑣牯›湩瑩慩楬敺⁳敳畱湥散琠⁯‰†††††††††††††ർ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊楓湧污楋摮敓㩴䌺楓湧污楋摮敓⡴ഩ 笠਍†††桴獩献煥敵据㵥㬰਍†ൽ ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯䌠湯瑳畲瑣牯›湩瑩慩楬敺⁳楷桴愠猠数楣楦⁣楳湧污欠湩⁤††††††ഠ⼊簯愠摮猠瑥⁳敳畱湥散琠⁯‰†††††††††††††††††††††ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊楓湧污楋摮敓㩴䌺楓湧污楋摮敓⡴湩⁴楳湧污楋摮ഩ 笠਍†琠楨⹳敳畱湥散〽഻ †桴獩献杩慮䭬湩㵤楳湧污楋摮഻ 素†਍†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼敄瑳畲瑣牯›敤敬整⁳桴⁥楳湧污楋摮敓⁴慨桳洠灡††††††††††ർ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊楓湧污楋摮敓㩴縺千杩慮䭬湩卤瑥⤨਍⁻ഠ †潦⁲椨瑮椠㴠〠※⁩‼桴獩献杩慮䭬湩䱤獩⹴潃湵⡴㬩椠⬫ ൻ ††椠瑮猠杩慮䭬湩㭤਍†††桴獩献杩慮䭬湩䱤獩⹴牔䝹瑥慖畬⡥Ⱪ楳湧污楋摮㬩਍†††千杩慮呬浩卥瑥‪楳湧污楔敭敓㭴਍†††桴獩献杩慮䭬湩卤瑥吮祲敇噴污敵猨杩慮䭬湩Ɽ楳湧污楔敭敓⥴഻ ††搠汥瑥⁥楳湧污楔敭敓㭴਍†素†਍ൽ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ�
+//+------------------------------------------------------------------+
+//|                                                SignalTimeSet.mqh |
+//|                                   |
+//|                                             
+//+------------------------------------------------------------------+
+#property copyright ""
+#property link      "https://www.mql5.com"
+#property version   "1.00"
+
+#include <Generic\ArrayList.mqh>
+#include <Generic\HashMap.mqh>
+#include "CSignal.mqh"
+#include "CSignalList.mqh"
+#include "CSignalTimeSet.mqh"
+
+class CSignalKindSet
+  {
+public:
+      int signalKind;  // Type of signal
+      ulong sequence;  // Sequence number for signals
+      CHashMap<int,CSignalTimeSet*> signalKindSet; // Hash map storing signal kind sets
+      //signal kind list
+      CArrayList<int> signalKindList;        
+public:
+      // Constructor: initializes signalKindSet
+      CSignalKindSet();
+      
+      // Constructor: initializes with a specific signal kind
+      CSignalKindSet(int signalKind);
+      
+      // Destructor: clears the signalKindSet
+     ~CSignalKindSet();     
+     
+      //+------------------------------------------------------------------+
+      //| Get the signal time set for a specific kind
+      //+------------------------------------------------------------------+            
+      bool getSignalTimeSet(int kind,CSignalTimeSet *&signalTimeSet){
+         return this.signalKindSet.TryGetValue(kind,signalTimeSet);
+      }
+      
+      //+------------------------------------------------------------------+
+      //| Get or create a signal time set for a specific kind
+      //+------------------------------------------------------------------+            
+      CSignalTimeSet* getSignalTimeSet(int kind){         
+         CSignalTimeSet *signalTimeSet;
+         if(!getSignalTimeSet(kind,signalTimeSet)){
+            signalTimeSet=new CSignalTimeSet();   // Create a new signal time set if not found
+            this.signalKindSet.Add(kind,signalTimeSet);   // Add the new set to the hash map
+            this.signalKindList.Add(kind);
+         }
+         return signalTimeSet;       
+      }  
+      
+      //+------------------------------------------------------------------+
+      //| Get the signal list for a specific kind and day
+      //+------------------------------------------------------------------+      
+      CSignalList* getSignalList(int kind,int day){
+         CSignalTimeSet *signalTimeSet=getSignalTimeSet(day);
+         if(signalTimeSet!=NULL){
+            return signalTimeSet.getSignalList(day);   // Retrieve signal list if the time set is available         
+         }
+         return NULL; // Return NULL if not found
+      }
+
+      //+------------------------------------------------------------------+
+      //| Add a signal to the signal list for a specific kind and day
+      //+------------------------------------------------------------------+      
+      void addSignalList(int kind,int day,CSignal *signal){
+         //comFunc.printfs("addSignalList day:" + " kind:" + kind);
+         CSignalList *signalList=this.getSignalList(kind,day);
+         if(signalList!=NULL){
+            signal.setSequence(getSignalSequence());  
+            signalList.add(signal);  // Add signal to the list        
+         }
+      }
+      
+      //+------------------------------------------------------------------+
+      //| Clear the entire signalKindSet hash map
+      //+------------------------------------------------------------------+      
+      void clear(){
+       this.signalKindSet.Clear();
+      }
+      
+      //+------------------------------------------------------------------+
+      //| Generate and return a unique sequence number for the signal
+      //+------------------------------------------------------------------+      
+      int getSignalSequence(){         
+         this.sequence=this.sequence+1; // Increment sequence
+         int signalSequence=this.signalKind*10000000+this.sequence; 
+         return signalSequence;
+      }
+      
+      //+------------------------------------------------------------------+
+      //| Set the signal kind
+      //+------------------------------------------------------------------+      
+      void setSignalKind(int kind){this.signalKind=kind;}                        
+  };
+  
+  
+//+------------------------------------------------------------------+
+//| Constructor: initializes sequence to 0                           |
+//+------------------------------------------------------------------+
+CSignalKindSet::CSignalKindSet()
+  {
+      this.sequence=0;
+  }
+  
+//+------------------------------------------------------------------+
+//| Constructor: initializes with a specific signal kind              
+//| and sets sequence to 0                                            
+//+------------------------------------------------------------------+
+CSignalKindSet::CSignalKindSet(int signalKind)
+  {
+   this.sequence=0;
+   this.signalKind=signalKind;
+  }  
+  
+//+------------------------------------------------------------------+
+//| Destructor: deletes the signalKindSet hash map                    |
+//+------------------------------------------------------------------+
+CSignalKindSet::~CSignalKindSet()
+{  
+   for (int i = 0; i < this.signalKindList.Count(); i++) {
+      int signalKind;
+      this.signalKindList.TryGetValue(i,signalKind);
+      CSignalTimeSet* signalTimeSet;
+      this.signalKindSet.TryGetValue(signalKind,signalTimeSet);
+      delete signalTimeSet;
+   }  
+}
+//+------------------------------------------------------------------+

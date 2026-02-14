@@ -1,1 +1,32 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼††††††††††††††††††††††††††䌠效摡牥洮桱簠਍⼯⁼††††††††††††††††††††††††††††歲敥爮歫簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍਍湩異⁴猠牴湩⁧䴠䑏䱅剟乕䕎归䕓呔义㵇ⴢⴭⴭ‭潭敤⁬畲湮牥猠瑥楴杮ⴠⴭⴭ∭഻ഊ椊灮瑵†潢汯††則䑉䵟䑏䱅䡟䑅䕇昽污敳഻椊灮瑵†湩⁴††則䑉䵟䑏䱅䵟塁䍟問呎ㄽ㬰†ഠ椊灮瑵†湩⁴††則䑉䵟䑏䱅䵟塁卟䵙佂彌奔䕐䍟問呎㌽഻椊灮瑵†湩⁴††則䑉䵟塁佟䑒剅䍟問呎㌽※†਍湩異⁴猠牴湩⁧䜠䥒彄塅䕔䑎䱟卉㵔㌢〰㌬〰㌬〰㬢਍湩異⁴搠畯汢⁥䜠䥒彄䥄呓乁䕃䑟䙉彆䥐卐㈽〰㬰਍湩異⁴猠牴湩⁧䜠䥒彄剐䙏呉䱟卉㵔㌢〰㐬〰㔬〰㬢਍湩異⁴搠畯汢⁥䜠䥒彄呓偏䱟协当䥐卐ㄽ〲㬰਍湩異⁴搠畯汢⁥䠠䑅䕇䝟䥒彄剐呏䍅彔䥐卐ㄽ〲㬰਍湩異⁴搠畯汢⁥䠠䑅䕇䝟䥒彄剐呏䍅彔䥄䙆偟偉㵓〱㬰਍਍਍湩異⁴戠潯⁬†匠弱則䑉䵟䑏䱅䡟䑅䕇琽畲㭥਍湩異⁴椠瑮††匠弱則䑉䵟䑏䱅䵟塁䍟問呎ㄽ㬰†ഠ椊灮瑵†湩⁴††ㅓ䝟䥒彄位䕄彌䅍彘奓䉍䱏呟偙彅佃乕㵔㬳਍湩異⁴椠瑮††匠弱則䑉䵟塁佟䑒剅䍟問呎㌽※†਍湩異⁴猠牴湩⁧匠弱則䑉䕟员久彄䥌呓∽〳ⰰ〳ⰰ〳∰※਍湩異⁴搠畯汢⁥匠弱則䑉䑟卉䅔䍎彅䥄䙆偟偉㵓〲〰※ഠ椊灮瑵†瑳楲杮†ㅓ䝟䥒彄剐䙏呉䱟卉㵔㌢〰㐬〰㔬〰㬢਍湩異⁴搠畯汢⁥匠弱則䑉卟佔彐佌卓偟偉㵓㈱〰഻椊灮瑵†潤扵敬†ㅓ䡟䑅䕇䝟䥒彄剐呏䍅彔䥐卐ㄽ〲㬰਍湩異⁴搠畯汢⁥匠弱䕈䝄彅則䑉偟佒䕔呃䑟䙉彆䥐卐ㄽ〰഻ഊ椊灮瑵†潤扵敬†彐則問彐啒乎剅䵟塁䍟問呎ㄽ഻椊灮瑵†潢汯††彐則問彐啒乎剅偟佒䕔呃䅟䱌琽畲㭥
+//+------------------------------------------------------------------+
+//|                                                      CHeader.mqh |
+//|                                                         rkee.rkk |
+//+------------------------------------------------------------------+
+
+input  string  MODEL_RUNNER_SETTING="------ model runner setting ------";
+
+input  bool    GRID_MODEL_HEDGE=false;
+input  int     GRID_MODEL_MAX_COUNT=10;   
+input  int     GRID_MODEL_MAX_SYMBOL_TYPE_COUNT=3;
+input  int     GRID_MAX_ORDER_COUNT=3;   
+input  string  GRID_EXTEND_LIST="300,300,300";
+input  double  GRID_DISTANCE_DIFF_PIPS=2000;
+input  string  GRID_PROFIT_LIST="300,400,500";
+input  double  GRID_STOP_LOSS_PIPS=1200;
+input  double  HEDGE_GRID_PROTECT_PIPS=1200;
+input  double  HEDGE_GRID_PROTECT_DIFF_PIPS=100;
+
+
+input  bool    S1_GRID_MODEL_HEDGE=true;
+input  int     S1_GRID_MODEL_MAX_COUNT=10;   
+input  int     S1_GRID_MODEL_MAX_SYMBOL_TYPE_COUNT=3;
+input  int     S1_GRID_MAX_ORDER_COUNT=3;   
+input  string  S1_GRID_EXTEND_LIST="300,300,300"; 
+input  double  S1_GRID_DISTANCE_DIFF_PIPS=2000;  
+input  string  S1_GRID_PROFIT_LIST="300,400,500";
+input  double  S1_GRID_STOP_LOSS_PIPS=1200;
+input  double  S1_HEDGE_GRID_PROTECT_PIPS=1200;
+input  double  S1_HEDGE_GRID_PROTECT_DIFF_PIPS=100;
+
+input  double  P_GROUP_RUNNER_MAX_COUNT=1;
+input  bool    P_GROUP_RUNNER_PROTECT_ALL=true;

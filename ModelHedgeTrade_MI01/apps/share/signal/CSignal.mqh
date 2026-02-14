@@ -1,1 +1,209 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼†††††††††††††††††††††††††††楓湧污洮桱簠਍⼯⁼†††††††††††††††††ർ⼊簯††††††††††††††††††††††ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⌊牰灯牥祴挠灯特杩瑨∠ഢ⌊牰灯牥祴氠湩⁫††∠瑨灴㩳⼯睷⹷煭㕬挮浯ഢ⌊牰灯牥祴瘠牥楳湯†∠⸱〰ഢഊ⌊湩汣摵⁥⸢⼮⸮栯慥敤⽲䑃晥湩⹥煭≨਍椣据畬敤∠千杩慮䅬瑣潩⹮煭≨਍਍汣獡⁳千杩慮൬ 笠਍†瀠楲慶整ഺ ††ഠ ††甠潬杮†潳牵散摉※⼠支⹧楴正瑥摉‬湩楤慣潴䥲൤ ††戠潯⁬†捡楴敶഻ ††猠牴湩⁧祳扭汯഻ ††椠瑮††祳扭汯湉敤㭸਍†††湩⁴†猠杩慮䭬湩㭤਍†††湩⁴†洠摯汥楋摮഻ ††甠潬杮猠煥敵据㭥਍†††湩⁴†楳湧污祔数഻ ††䔠啎彍剏䕄归奔䕐琠慲敤祔数഻ ††搠畯汢⁥牰捩㭥਍†††潤扵敬瀠楯瑮഻ ††搠瑡瑥浩⁥瑳牡呴浩㭥਍†††慤整楴敭攠摮楔敭഻ ††搠畯汢⁥†潬㭴਍†††汵湯⁧†猠杩慮䥬㭤਍†††਍†††⼯楳湧污挠湯牴汯瀠牡浡瑥牥਍†††潤扵敬†猠杩慮䑬晩偦灩㭳਍††††††਍†††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍†††⼯⁼捡楴湯挠湯牴汯瀠牡浡瑥牥൳ ††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫†††ഠ ††椠瑮愠瑣潩䥮摮硥※††਍†††䅃牲祡楌瑳䌼楓湧污捁楴湯㸪愠瑣潩䱮獩㭴਍†††਍†††⼯瑳瑡獵映慬൧ ††椠瑮†††瑳瑡獵湉敤㭸਍†††湩⁴††猠慴畴䙳杬഻ ††ഠ †異汢捩ഺ ††††千杩慮⡬㬩਍††††䌠楓湧污椨瑮猠杩慮䭬湩Ɽ瑳楲杮猠浹潢ⱬ久䵕佟䑒剅呟偙⁅牴摡呥灹ⱥ潤扵敬氠瑯搬畯汢⁥牰捩ⱥ慤整楴敭猠慴瑲楔敭搬瑡瑥浩⁥湥呤浩⥥഻ †††縠千杩慮⡬㬩਍††††††††਍†††⼯䜠瑥整⁲湡⁤敓瑴牥映牯猠畯捲䥥൤ ††椠瑮朠瑥潓牵散摉⤨笠爠瑥牵⁮潳牵散摉※ൽ ††瘠楯⁤敳却畯捲䥥⡤湩⁴慶畬⥥笠猠畯捲䥥⁤‽慶畬㭥素਍†††਍†††⼯䜠瑥整⁲湡⁤敓瑴牥映牯猠杩慮䭬湩൤ ††椠瑮朠瑥楓湧污楋摮⤨笠爠瑥牵⁮楳湧污楋摮※ൽ ††瘠楯⁤敳却杩慮䭬湩⡤湩⁴慶畬⥥笠猠杩慮䭬湩⁤‽慶畬㭥素਍†††਍†††⼯䜠瑥整⁲湡⁤敓瑴牥映牯洠摯汥楋摮਍†††湩⁴敧䵴摯汥楋摮⤨笠爠瑥牵⁮桴獩洮摯汥楋摮※ൽ ††瘠楯⁤敳䵴摯汥楋摮椨瑮瘠污敵 ⁻桴獩洮摯汥楋摮㴠瘠污敵※⁽††ഠ ††ഠ ††⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲楳湧污祔数਍†††湩⁴敧却杩慮呬灹⡥ ⁻敲畴湲猠杩慮呬灹㭥素਍†††潶摩猠瑥楓湧污祔数椨瑮瘠污敵 ⁻楳湧污祔数㴠瘠污敵※ൽ ††ഠ ††⼠ 敇瑴牥映牯猠杩慮䥬൤ ††甠潬杮朠瑥楓湧污摉⤨笠爠瑥牵⁮楳湧污摉※ൽ ††瘠楯⁤猠瑥楓湧污摉用潬杮瘠污敵 ⁻桴獩献杩慮䥬㵤慶畬㭥素਍†††਍†††⼯䜠瑥整⁲潦⁲捁楴湯湉敤൸ ††椠瑮朠瑥捁楴湯湉敤⡸ ⁻敲畴湲愠瑣潩䥮摮硥※ൽ ††ഠ ††⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲敳畱湥散਍†††汵湯⁧敧却煥敵据⡥ ⁻敲畴湲猠煥敵据㭥素਍†††潶摩猠瑥敓畱湥散用潬杮瘠污敵 ⁻敳畱湥散㴠瘠污敵※ൽ ††ഠ ††⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲牴摡呥灹൥ ††䔠啎彍剏䕄归奔䕐朠瑥牔摡呥灹⡥ ⁻敲畴湲琠慲敤祔数※ൽ ††瘠楯⁤敳呴慲敤祔数䔨啎彍剏䕄归奔䕐瘠污敵 ⁻牴摡呥灹⁥‽慶畬㭥素਍†††਍†††⼯䜠瑥整⁲湡⁤敓瑴牥映牯氠瑯਍†††潤扵敬朠瑥潌⡴ ⁻敲畴湲氠瑯※ൽ ††瘠楯⁤敳䱴瑯搨畯汢⁥慶畬⥥笠氠瑯㴠瘠污敵※ൽ ††ഠ ††⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲瑳牡呴浩൥ ††搠瑡瑥浩⁥敧却慴瑲楔敭⤨笠爠瑥牵⁮瑳牡呴浩㭥素਍†††潶摩猠瑥瑓牡呴浩⡥慤整楴敭瘠污敵 ⁻瑳牡呴浩⁥‽慶畬㭥素਍†††਍†††⼯䜠瑥整⁲湡⁤敓瑴牥映牯攠摮楔敭਍†††慤整楴敭朠瑥湅呤浩⡥ ⁻敲畴湲攠摮楔敭※ൽ ††瘠楯⁤敳䕴摮楔敭搨瑡瑥浩⁥慶畬⥥笠攠摮楔敭㴠瘠污敵※ൽ ††ഠ ††⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲祳扭汯਍†††瑳楲杮朠瑥祓扭汯⤨笠爠瑥牵⁮祳扭汯※ൽ ††瘠楯⁤敳却浹潢⡬瑳楲杮瘠污敵 ⁻祳扭汯㴠瘠污敵※ൽ ††ഠ ††⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲祳扭汯椠摮硥਍†††湩⁴敧却浹潢䥬摮硥⤨笠爠瑥牵⁮祳扭汯湉敤㭸素਍†††潶摩猠瑥祓扭汯湉敤⡸湩⁴慶畬⥥笠猠浹潢䥬摮硥㴠瘠污敵※⁽††ഠഊ ††⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲祳扭汯猠杩慮⁬楄晦倠灩൳ ††搠畯汢⁥敧却杩慮䑬晩偦灩⡳ ⁻敲畴湲猠杩慮䑬晩偦灩㭳素਍†††潶摩猠瑥楓湧污楄晦楐獰椨瑮瘠污敵 ⁻楳湧污楄晦楐獰㴠瘠污敵※⁽਍†††਍†††⼯朠瑥猠慴畴⁳湩敤൸ ††椠瑮†敧却慴畴䥳摮硥⤨牻瑥牵⁮桴獩献慴畴䥳摮硥紻਍†††潶摩猠瑥瑓瑡獵湉敤⡸湩⁴慶畬⥥瑻楨⹳瑳瑡獵湉敤㵸慶畬㭥⁽਍†††਍†††⼯朠瑥猠慴畴⁳汦条਍†††湩⁴朠瑥瑓瑡獵汆⡧笩敲畴湲琠楨⹳瑳瑡獵汆㭧ൽ ††瘠楯⁤敳却慴畴䙳杬椨瑮瘠污敵笩桴獩献慴畴䙳杬瘽污敵紻†††††††††††਍†††਍†††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍†††⼯⁼搠晥湩⁥桴⁥楳湧污挠湯牴汯映湵楴湯਍†††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭†††਍†††⼯䜠瑥整⁲敓瑴牥映牯瀠楲散਍†††潤扵敬朠瑥牐捩⡥ ⁻敲畴湲琠楨⹳牰捩㭥素਍†††潶摩†猠瑥牐捩⡥潤扵敬瘠污敵笩桴獩瀮楲散瘽污敵紻ഠ ††⼠ 敇瑴牥匠瑥整⁲潦⁲潰湩൴ ††搠畯汢⁥敧側楯瑮⤨笠爠瑥牵⁮桴獩瀮楯瑮※ൽ ††瘠楯⁤†敳側楯瑮搨畯汢⁥慶畬⥥瑻楨⹳潰湩㵴慶畬㭥⁽਍†††਍†††⼯敧⁴桴⁥捡楴敶⁤敳潣摮൳ ††椠瑮†愠瑣癩卥捥湯獤⤨഻ ††ഠ ††⼠樯摵敧椠⁳捡楴敶਍†††潢汯†獩捁楴敶⤨഻ ††ഠ ††⼠愯摤猠杩慮⁬捡楴湯ഠ ††瘠楯⁤摡䅤瑣潩⡮千杩慮䅬瑣潩⩮猠杩慮䅬瑣潩⥮഻ ††ഠ ††⼠术瑥䄠瑣潩⁮楌瑳਍†††䅃牲祡楌瑳䌼楓湧污捁楴湯㸪‪敧䅴瑣潩䱮獩⡴㬩਍†㭽਍†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥琠敨愠瑣癩摥猠捥湯獤਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍湩⁴千杩慮㩬愺瑣癩卥捥湯獤⤨ൻ †晩琨楨⹳瑳牡呴浩㹥‰☦吠浩䍥牵敲瑮⤨㴾桴獩献慴瑲楔敭笩਍†††敲畴湲⠠楔敭畃牲湥⡴⴩桴獩献慴瑲楔敭㬩਍†素਍†爠瑥牵⁮ㄭ഻紊††††਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼樠摵敧椠⁳捡楴敶਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潢汯䌠楓湧污㨺獩捁楴敶⤨⁻†††††††††††ഠ †湩⁴捡楴敶敓潣摮㵳桴獩愮瑣癩卥捥湯獤⤨※†††††ഠ †晩愨瑣癩卥捥湯獤㴾‰☦愠瑣癩卥捥湯獤匼䝉䅎彌䍁䥔䕖卟䍅乏卄笩਍†††敲畴湲琠畲㭥਍†素਍†爠瑥牵⁮慦獬㭥਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†摡⁤楳湧污愠瑣潩⁮਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠楓湧污㨺摡䅤瑣潩⡮千杩慮䅬瑣潩⩮猠杩慮䅬瑣潩⥮⁻††ഠ †桴獩愮瑣潩䱮獩⹴摁⡤楳湧污捁楴湯㬩਍†琠楨⹳捡楴湯湉敤㵸桴獩愮瑣潩䱮獩⹴潃湵⡴⴩㬱਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敧⁴捡楴湯氠獩൴⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊牁慲䱹獩㱴千杩慮䅬瑣潩⩮⨾䌠楓湧污㨺敧䅴瑣潩䱮獩⡴笩†††਍†爠瑥牵⁮琦楨⹳捡楴湯楌瑳഻紊਍†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼挠慬獳挠湯瑳畲瑣牯†ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊楓湧污㨺千杩慮⡬ഩ笊਍†琠楨⹳捡楴敶昽污敳഻ †⼯潣瑮潲⁬慰慲൭ †桴獩愮瑣潩䥮摮硥〽഻ †⼯瑳瑡獵映慬൧ †桴獩献慴畴䙳杬匽䅔啔当低䕎഻紊਍†਍千杩慮㩬䌺楓湧污椨瑮猠杩慮䭬湩Ɽ瑳楲杮猠浹潢ⱬ久䵕佟䑒剅呟偙⁅牴摡呥灹ⱥ਍†††††††††潤扵敬氠瑯搬畯汢⁥牰捩ⱥ慤整楴敭猠慴瑲楔敭搬瑡瑥浩⁥湥呤浩⥥਍ൻ †桴獩愮瑣癩㵥慦獬㭥਍†琠楨⹳楳湧污楋摮猽杩慮䭬湩㭤†ഠ †桴獩献浹潢㵬祳扭汯഻ †桴獩琮慲敤祔数琽慲敤祔数഻ †桴獩氮瑯氽瑯഻ †桴獩瀮楲散瀽楲散഻ †桴獩献慴瑲楔敭猽慴瑲楔敭഻ †桴獩攮摮楔敭攽摮楔敭※†਍†甠潬杮琠浩獥慴灭㴠䜠瑥楔正潃湵⡴㬩਍†琠楨⹳楳湧污摉㴠⠠楴敭瑳浡⁰㰼ㄠ⤶簠⠠慍桴慒摮⤨☠〠䙸䙆⥆※††††††਍†琠楨⹳潳牵散摉琽楨⹳楳湧污摉഻ †⼯潣瑮潲⁬慰慲൭ †桴獩愮瑣潩䥮摮硥〽഻紊†਍千杩慮㩬縺千杩慮⡬笩਍†⼠䌯牁慲䱹獩㱴千杩慮䅬瑣潩⩮‾捡楴湯楌瑳഻ †潦⁲椨瑮椠㴠〠※⁩‼桴獩愮瑣潩䱮獩⹴潃湵⡴㬩椠⬫ ൻ ††䌠楓湧污捁楴湯‪捡楴湯഻ ††琠楨⹳捡楴湯楌瑳吮祲敇噴污敵椨愬瑣潩⥮഻ ††搠汥瑥⁥捡楴湯഻ †ൽ紊਍
+//+------------------------------------------------------------------+
+//|                                                       Signal.mqh |
+//|                                   |
+//|                                             
+//+------------------------------------------------------------------+
+#property copyright ""
+#property link      "https://www.mql5.com"
+#property version   "1.00"
+
+#include "../../header/CDefine.mqh"
+#include "CSignalAction.mqh"
+
+class CSignal
+  {
+   private:
+      
+      ulong  sourceId;  //eg.ticketId, indicatorId
+      bool   active;
+      string symbol;
+      int    symbolIndex;
+      int    signalKind;
+      int    modelKind;
+      ulong sequence;
+      int   signalType;
+      ENUM_ORDER_TYPE tradeType;
+      double price;
+      double point;
+      datetime startTime;
+      datetime endTime;
+      double   lot;
+      ulong    signalId;
+      
+      //signal control parameter
+      double   signalDiffPips;
+            
+      //+------------------------------------------------------------------+
+      //| action control parameters
+      //+------------------------------------------------------------------+        
+      int actionIndex;     
+      CArrayList<CSignalAction*> actionList;
+      
+      //status flag
+      int      statusIndex;
+      int      statusFlg;
+      
+   public:
+         CSignal();
+         CSignal(int signalKind,string symbol,ENUM_ORDER_TYPE tradeType,double lot,double price,datetime startTime,datetime endTime);
+        ~CSignal();
+                
+      // Getter and Setter for sourceId
+      int getSourceId() { return sourceId; }
+      void setSourceId(int value) { sourceId = value; }
+      
+      // Getter and Setter for signalKind
+      int getSignalKind() { return signalKind; }
+      void setSignalKind(int value) { signalKind = value; }
+      
+      // Getter and Setter for modelKind
+      int getModelKind() { return this.modelKind; }
+      void setModelKind(int value) { this.modelKind = value; }      
+      
+      // Getter and Setter for signalType
+      int getSignalType() { return signalType; }
+      void setSignalType(int value) { signalType = value; }
+      
+      // Getter for signalId
+      ulong getSignalId() { return signalId; }
+      void  setSignalId(ulong value) { this.signalId=value; }
+      
+      // Getter for ActionIndex
+      int getActionIndex() { return actionIndex; }
+      
+      // Getter and Setter for sequence
+      ulong getSequence() { return sequence; }
+      void setSequence(ulong value) { sequence = value; }
+      
+      // Getter and Setter for tradeType
+      ENUM_ORDER_TYPE getTradeType() { return tradeType; }
+      void setTradeType(ENUM_ORDER_TYPE value) { tradeType = value; }
+      
+      // Getter and Setter for lot
+      double getLot() { return lot; }
+      void setLot(double value) { lot = value; }
+      
+      // Getter and Setter for startTime
+      datetime getStartTime() { return startTime; }
+      void setStartTime(datetime value) { startTime = value; }
+      
+      // Getter and Setter for endTime
+      datetime getEndTime() { return endTime; }
+      void setEndTime(datetime value) { endTime = value; }
+      
+      // Getter and Setter for symbol
+      string getSymbol() { return symbol; }
+      void setSymbol(string value) { symbol = value; }
+      
+      // Getter and Setter for symbol index
+      int getSymbolIndex() { return symbolIndex; }
+      void setSymbolIndex(int value) { symbolIndex = value; }      
+
+      // Getter and Setter for symbol signal Diff Pips
+      double getSignalDiffPips() { return signalDiffPips; }
+      void setSignalDiffPips(int value) { signalDiffPips = value; } 
+      
+      // get status index
+      int  getStatusIndex(){return this.statusIndex;}
+      void setStatusIndex(int value){this.statusIndex=value;} 
+      
+      // get status flag
+      int  getStatusFlg(){return this.statusFlg;}
+      void setStatusFlg(int value){this.statusFlg=value;}                      
+      
+      //+------------------------------------------------------------------+
+      //|  define the signal control funtion
+      //+------------------------------------------------------------------+      
+      // Getter Setter for price
+      double getPrice() { return this.price; }
+      void   setPrice(double value){this.price=value;} 
+      // Getter Setter for point
+      double getPoint() { return this.point; }
+      void   setPoint(double value){this.point=value;} 
+      
+      //get the actived seconds
+      int   activeSeconds();
+      
+      //judge is active
+      bool  isActive();
+      
+      //add signal action 
+      void addAction(CSignalAction* signalAction);
+      
+      //get Action List
+      CArrayList<CSignalAction*>* getActionList();
+  };
+  
+//+------------------------------------------------------------------+
+//|  get the actived seconds
+//+------------------------------------------------------------------+
+int CSignal::activeSeconds(){
+   if(this.startTime>0 && TimeCurrent()>=this.startTime){
+      return (TimeCurrent()-this.startTime);
+   }
+   return -1;
+}        
+
+//+------------------------------------------------------------------+
+//|  judge is active
+//+------------------------------------------------------------------+
+bool CSignal::isActive(){                        
+   int activeSeconds=this.activeSeconds();            
+   if(activeSeconds>=0 && activeSeconds<SIGNAL_ACTIVE_SECONDS){
+      return true;
+   }
+   return false;
+}
+
+//+------------------------------------------------------------------+
+//|  add signal action 
+//+------------------------------------------------------------------+
+void CSignal::addAction(CSignalAction* signalAction){      
+   this.actionList.Add(signalAction);
+   this.actionIndex=this.actionList.Count()-1;
+}
+
+//+------------------------------------------------------------------+
+//|  get action list
+//+------------------------------------------------------------------+
+CArrayList<CSignalAction*>* CSignal::getActionList(){      
+   return &this.actionList;
+}
+  
+//+------------------------------------------------------------------+
+//|  class constructor   
+//+------------------------------------------------------------------+
+CSignal::CSignal()
+{
+   this.active=false;
+   //control param
+   this.actionIndex=0;
+   //status flag
+   this.statusFlg=STATUS_NONE;
+}
+  
+CSignal::CSignal(int signalKind,string symbol,ENUM_ORDER_TYPE tradeType,
+                  double lot,double price,datetime startTime,datetime endTime)
+{
+   this.active=false;
+   this.signalKind=signalKind;   
+   this.symbol=symbol;
+   this.tradeType=tradeType;
+   this.lot=lot;
+   this.price=price;
+   this.startTime=startTime;
+   this.endTime=endTime;   
+   ulong timestamp = GetTickCount();
+   this.signalId = (timestamp << 16) | (MathRand() & 0xFFFF);             
+   this.sourceId=this.signalId;
+   //control param
+   this.actionIndex=0;
+}  
+CSignal::~CSignal(){
+   //CArrayList<CSignalAction*> actionList;
+   for (int i = 0; i < this.actionList.Count(); i++) {
+      CSignalAction* action;
+      this.actionList.TryGetValue(i,action);
+      delete action;
+   }
+}

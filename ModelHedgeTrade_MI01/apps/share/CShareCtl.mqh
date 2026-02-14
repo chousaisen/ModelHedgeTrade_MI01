@@ -1,1 +1,269 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼†††††††††††††††††††††††††䌠桓牡䍥汴洮桱簠਍⼯⁼††††††††††††††††††††††††††††歲敥爮歫簠਍⼯⁼††††††††††††††††††††††††††††††††簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍瀣潲数瑲⁹潣祰楲桧⁴爢敫⹥歲≫਍瀣潲数瑲⁹楬歮†††∢਍瀣潲数瑲⁹敶獲潩⁮†ㄢ〮∰਍਍਍椣据畬敤∠⸮捜浯屭潃䙭湵⹣煭≨਍椣据畬敤∠⸮捜浯屭䱃杯洮桱ഢ⌊湩汣摵⁥⸢尮汣敩瑮䍜汃敩瑮瑃⹬煭≨਍਍⼯桳牡⁥慤慴਍椣据畬敤∠⸮楜摮捩瑡牯䍜湉楤慣潴䍲汴洮桱ഢ⌊湩汣摵⁥挢楬湥屴䍃楬湥却慨敲洮桱ഢ⌊湩汣摵⁥椢摮捩瑡牯䍜湉楤慣潴卲慨敲洮桱ഢ⌊湩汣摵⁥昢汩整屲䙃汩整卲慨敲洮桱ഢ⌊湩汣摵⁥栢摥敧䍜效杤卥慨敲洮桱ഢ⌊湩汣摵⁥猢浹潢屬千浹潢卬慨敲洮桱ഢ⌊湩汣摵⁥洢摯汥䍜潍敤卬慨敲洮桱ഢ⌊湩汣摵⁥猢杩慮屬千杩慮卬慨敲洮桱ഢ⌊湩汣摵⁥愢慮祬楳屳䅃慮祬楳即慨敲洮桱ഢ⌊湩汣摵⁥爢捥癯牥屹剃捥癯牥卹慨敲洮桱ഢ⌊湩汣摵⁥洢牡敫屴䵃牡敫却慨敲洮桱ഢഊ挊慬獳䌠桓牡䍥汴ൻഊ †牰癩瑡㩥਍†††਍†††⼯潣浭湯椠普൯ ††椠瑮†††††††洠摯汥楋摮※††ഠ ††ഠ ††⼠振湯牴汯猠慨敲਍†††䍃楬湥䍴汴‪†††汣敩瑮瑃㭬਍†††䥃摮捩瑡牯瑃⩬††湩楤慣潴䍲汴※†਍†††਍†††⼯畯獴摩⁥扯敪瑣猠慨敲਍†††千浹潢卬慨敲‪††祳扭汯桓牡㭥਍†††䥃摮捩瑡牯桓牡⩥†湩楤慣潴卲慨敲഻ ††䌠湁污獹獩桓牡⩥†愠慮祬楳即慨敲഻ ††䌠敒潣敶祲桓牡⩥†爠捥癯牥卹慨敲഻ ††ഠ ††⼠氯捯污漠橢捥⁴桳牡൥ ††䌠楆瑬牥桓牡⁥††映汩整卲慨敲※†††਍†††䵃摯汥桓牡⁥†††潭敤卬慨敲഻ ††䌠效杤卥慨敲†††栠摥敧桓牡㭥†਍†††千杩慮卬慨敲†††楳湧污桓牡㭥਍†††䵃牡敫却慨敲†††慭歲瑥桓牡㭥਍†††䍃楬湥却慨敲†††汣敩瑮桓牡㭥††ഠ ††ഠ †異汢捩ഺ ††††††††††††䌠桓牡䍥汴⤨഻ ††††††††††††䍾桓牡䍥汴⤨഻ ††਍††††⼠⴯ⴭ洠瑥潨獤漠⁦湩瑩汩穩൥ ††††潶摩††††††††湩瑩䌨湉楤慣潴䍲汴‪湩楤慣潴䍲汴㬩ഠ ††††⼯ⴭ‭敲牦獥൨ ††††潶摩††††††††敲牦獥⡨㬩਍††††⼠⴯ⴭ朠瑥映汩整⁲桳牡൥ ††††䙃汩整卲慨敲‪†††敧䙴汩整卲慨敲⤨഻ ††††⼯ⴭ‭敧⁴敨杤⁥桳牡൥ ††††䡃摥敧桓牡⩥††††敧䡴摥敧桓牡⡥㬩਍††††⼠⴯ⴭ朠瑥洠摯汥猠慨敲਍††††䌠潍敤卬慨敲‪†††朠瑥潍敤卬慨敲⤨഻ ††††⼯ⴭ‭敧⁴楳湧污猠慨敲਍††††䌠楓湧污桓牡⩥†††朠瑥楓湧污桓牡⡥㬩ഠ ††††⼯ⴭ‭敧⁴楳湧污猠慨敲਍††††䌠祓扭汯桓牡⩥†††朠瑥祓扭汯桓牡⡥㬩ഠ ††††⼯ⴭ‭敧⁴湩楤慣潴⁲桳牡൥ ††††䥃摮捩瑡牯桓牡⩥††敧䥴摮捩瑡牯桓牡⡥㬩ഠ ††††⼯ⴭ‭敧⁴湡污獹獩猠慨敲†਍††††䌠湁污獹獩桓牡⩥††朠瑥湁污獹獩桓牡⡥㬩††††ഠ ††††⼯ⴭ‭敧⁴敲潣敶祲猠慨敲਍††††䌠敒潣敶祲桓牡⩥††朠瑥敒潣敶祲桓牡⡥㬩਍††††⼠⴯ⴭ朠瑥洠牡敫⁴桳牡൥ ††††䵃牡敫却慨敲‪†††敧䵴牡敫却慨敲⤨഻ ††††⼯ⴭ‭敧⁴汣敩瑮猠慨敲਍††††䌠汃敩瑮桓牡⩥†††朠瑥汃敩瑮桓牡⡥㬩਍††††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ ††††⼯⁼朠瑥猠慨敲瀠潲数瑲敩⁳映湵瑣潩൮ ††††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍††††ഠ ††††⼯ⴭ‭敧⁴祳扭汯挠牯敲慬楴湯戠⁹祳扭汯ഠ ††††潤扵敬†††††††敧却浹潢䍬牯敲慬楴湯猨牴湩⁧祳扭汯ⰱ瑳楲杮猠浹潢㉬㬩਍††††ഠ ††††⼯ⴭ‭敧⁴汣敩瑮挠湯牴汯਍††††䌠汃敩瑮瑃⩬††††朠瑥汃敩瑮瑃⡬㬩਍††††瘠楯⁤†††††††猠瑥汃敩瑮瑃⡬䍃楬湥䍴汴‪汣敩瑮瑃⥬※਍††††ഠ ††††⼯敲潬摡爠捥癯牥⁹湩潦਍††††瘠楯⁤†††††††爠汥慯⡤㬩ഠ ††††⼯ⴭ‭敳⁴潭敤⁬楫摮਍††††瘠楯⁤†††††猠瑥潍敤䭬湩⡤湩⁴潭敤䭬湩⥤഻ ††††⼯ⴭ‭敧⁴潭敤⁬楫摮਍††††椠瑮††††††朠瑥潍敤䭬湩⡤㬩††††††ഠ紊഻ഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†湩瑩慩楬敺琠敨挠慬獳਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠桓牡䍥汴㨺湩瑩䌨湉楤慣潴䍲汴‪湩楤慣潴䍲汴笩਍਍†琠楨⹳湩楤慣潴䍲汴椽摮捩瑡牯瑃㭬਍†琠楨⹳祳扭汯桓牡㵥桴獩椮摮捩瑡牯瑃⹬敧却浹潢卬慨敲⤨഻ †桴獩椮摮捩瑡牯桓牡㵥桴獩椮摮捩瑡牯瑃⹬敧䥴摮捩瑡牯桓牡⡥㬩਍†琠楨⹳湡污獹獩桓牡㵥桴獩椮摮捩瑡牯瑃⹬敧䅴慮祬楳即慨敲⤨഻ †桴獩爮捥癯牥卹慨敲琽楨⹳湩楤慣潴䍲汴朮瑥敒潣敶祲桓牡⡥㬩਍਍†琠楨⹳潭敤卬慨敲椮楮⡴桴獩献浹潢卬慨敲琬楨⹳湡污獹獩桓牡ⱥ琦楨⹳慭歲瑥桓牡⥥഻ †桴獩栮摥敧桓牡⹥湩瑩琨楨⹳潭敤卬慨敲朮瑥牏敤獲⤨ബ †††††††††††琠楨⹳湩楤慣潴卲慨敲ബ †††††††††††琠楨⹳祳扭汯桓牡ⱥ਍††††††††††††桴獩朮瑥慍歲瑥桓牡⡥Ⱙ਍††††††††††††桴獩朮瑥汃敩瑮桓牡⡥⤩഻ †††††††††††ഠ †桴獩朮瑥潍敤卬慨敲⤨朮瑥潍敤䅬慮祬楳⡳⸩湩瑩琨楨⹳敧却浹潢卬慨敲⤨朮瑥祓扭汯湉潦⡳⤩഻ †桴獩朮瑥潍敤卬慨敲⤨朮瑥潍敤䅬慮祬楳偳敲⤨椮楮⡴桴獩朮瑥祓扭汯桓牡⡥⸩敧却浹潢䥬普獯⤨㬩†਍ൽ ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敲敳⁴桴⁥桳牡⁥潣瑮潲൬⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ瘊楯⁤千慨敲瑃㩬爺晥敲桳瘨楯⥤਍ൻ †⼯桴獩献浹潢卬慨敲爮卥瑥⤨഻ †⼯桴獩愮慮祬楳即慨敲爮晥敲桳⤨※਍⁽ഠഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敧⁴楦瑬牥猠慨敲਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䙃汩整卲慨敲‪千慨敲瑃㩬机瑥楆瑬牥桓牡⡥笩਍†爠瑥牵⁮琦楨⹳楦瑬牥桓牡㭥਍ൽഊഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敧⁴敨杤⁥桳牡⁥慤慴਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䡃摥敧桓牡⩥䌠桓牡䍥汴㨺敧䡴摥敧桓牡⡥潶摩ഩ笊਍†爠瑥牵⁮琦楨⹳敨杤卥慨敲഻紊਍ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敧⁴楳湧污猠慨敲搠瑡ൡ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊楓湧污桓牡⩥䌠桓牡䍥汴㨺敧却杩慮卬慨敲瘨楯⥤਍ൻ †敲畴湲☠桴獩献杩慮卬慨敲഻紊†਍†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥洠摯汥猠慨敲搠瑡ൡ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊潍敤卬慨敲‪千慨敲瑃㩬机瑥潍敤卬慨敲瘨楯⥤਍ൻ †敲畴湲☠桴獩洮摯汥桓牡㭥਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敧⁴牯敤⁲桳牡⁥慤慴਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍千浹潢卬慨敲‪千慨敲瑃㩬机瑥祓扭汯桓牡⡥潶摩ഩ笊਍†爠瑥牵⁮桴獩献浹潢卬慨敲഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥猠杩慮⁬桳牡⁥慤慴਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䥃摮捩瑡牯桓牡⩥䌠桓牡䍥汴㨺敧䥴摮捩瑡牯桓牡⡥潶摩ഩ笊਍†爠瑥牵⁮桴獩椮摮捩瑡牯桓牡㭥਍⁽਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥愠慮祬楳⁳桳牡⁥਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭ഠ䌊湁污獹獩桓牡⩥䌠桓牡䍥汴㨺敧䅴慮祬楳即慨敲⤨਍ൻ †敲畴湲琠楨⹳湡污獹獩桓牡㭥਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敧⁴敲潣敶祲猠慨敲ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫਍剃捥癯牥卹慨敲‪千慨敲瑃㩬机瑥敒潣敶祲桓牡⡥潶摩ഩ笊਍†爠瑥牵⁮桴獩爮捥癯牥卹慨敲഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥洠牡敫⁴桳牡⁥਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭ഠ䌊慍歲瑥桓牡⩥†千慨敲瑃㩬机瑥慍歲瑥桓牡⡥笩਍†爠瑥牵⁮琦楨⹳慭歲瑥桓牡㭥਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敧⁴汣敩瑮猠慨敲ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫਍䍃楬湥却慨敲‪䌠桓牡䍥汴㨺敧䍴楬湥却慨敲⤨ൻ †敲畴湲☠桴獩挮楬湥却慨敲഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥猠浹潢⁬潣牲汥瑡潩⁮慶畬⁥祢猠浹潢൬⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ搊畯汢⁥千慨敲瑃㩬机瑥祓扭汯潃牲汥瑡潩⡮瑳楲杮猠浹潢ㅬബ ††††††††††††††††††††††瑳楲杮猠浹潢㉬笩਍†椠瑮猠浹潢䥬摮硥㴱桴獩朮瑥祓扭汯桓牡⡥⸩敧却浹潢䥬摮硥猨浹潢ㅬ㬩਍†椠瑮猠浹潢䥬摮硥㴲桴獩朮瑥祓扭汯桓牡⡥⸩敧却浹潢䥬摮硥猨浹潢㉬㬩਍†爠瑥牵⁮桴獩栮摥敧桓牡⹥敧却浹潢䍬牯敲慬楴湯猨浹潢䥬摮硥ⰱ祳扭汯湉敤㉸㬩਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敧⁴汣敩瑮挠湯牴汯਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䍃楬湥䍴汴‪千慨敲瑃㩬机瑥汃敩瑮瑃⡬笩਍†爠瑥牵⁮桴獩挮楬湥䍴汴഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥挠楬湥⁴潣瑮潲൬⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ瘊楯⁤千慨敲瑃㩬猺瑥汃敩瑮瑃⡬䍃楬湥䍴汴‪汣敩瑮瑃⥬ൻ †桴獩挮楬湥䍴汴挽楬湥䍴汴഻ †桴獩愮慮祬楳即慨敲献瑥汃敩瑮瑃⡬桴獩挮楬湥䍴汴㬩਍†琠楨⹳敲潣敶祲桓牡⹥敳剴捥癯牥䑹⡂桴獩挮楬湥䍴汴朮瑥䉄⤨㬩਍⁽††ഠഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯爠汥慯⁤敲潣敶祲椠普൯⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ瘊楯⁤千慨敲瑃㩬爺汥慯⡤笩਍†琠楨⹳敲潣敶祲桓牡⹥潬摡慒杮䥥普⡯㬩਍†琠楨⹳湡污獹獩桓牡⹥敧䍴牵慒杮⡥⸩慭歲敒潬摡⤨഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼猠瑥洠摯汥楋摮਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠桓牡䍥汴㨺敳䵴摯汥楋摮椨瑮洠摯汥楋摮笩਍†琠楨⹳潭敤䭬湩㵤潭敤䭬湩㭤਍†ഠ †⼯敳⁴瑯敨⁲扯敪瑣猧洠摯汥欠湩൤ †桴獩朮瑥效杤卥慨敲⤨献瑥潍敤䭬湩⡤桴獩洮摯汥楋摮㬩਍††਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敳⁴潭敤䭬湩൤⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ椊瑮䌠桓牡䍥汴㨺敧䵴摯汥楋摮⤨ൻ †敲畴湲琠楨⹳潭敤䭬湩㭤਍ൽഊഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†汣獡⁳潣獮牴捵潴⁲†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍千慨敲瑃㩬䌺桓牡䍥汴⤨ൻ †⼯桴獩愮捣畯瑮潎䄽捣畯瑮湉潦湉整敧⡲䍁佃乕彔佌䥇⥎഻ †⼯桴獩爮汥慯䙤杬昽污敳഻紊਍千慨敲瑃㩬縺千慨敲瑃⡬笩�
+//+------------------------------------------------------------------+
+//|                                                    CShareCtl.mqh |
+//|                                                         rkee.rkk |
+//|                                                                  |
+//+------------------------------------------------------------------+
+#property copyright "rkee.rkk"
+#property link      ""
+#property version   "1.00"
+
+
+#include "..\comm\ComFunc.mqh"
+#include "..\comm\CLog.mqh"
+#include "..\client\CClientCtl.mqh"
+
+//share data
+#include "..\indicator\CIndicatorCtl.mqh"
+#include "client\CClientShare.mqh"
+#include "indicator\CIndicatorShare.mqh"
+#include "filter\CFilterShare.mqh"
+#include "hedge\CHedgeShare.mqh"
+#include "symbol\CSymbolShare.mqh"
+#include "model\CModelShare.mqh"
+#include "signal\CSignalShare.mqh"
+#include "analysis\CAnalysisShare.mqh"
+#include "recovery\CRecoveryShare.mqh"
+#include "market\CMarketShare.mqh"
+
+class CShareCtl{
+
+   private:
+      
+      //common info
+      int               modelKind;      
+      
+      //control share
+      CClientCtl*       clientCtl;
+      CIndicatorCtl*    indicatorCtl;   
+      
+      //outside object share
+      CSymbolShare*     symbolShare;
+      CIndicatorShare*  indicatorShare;
+      CAnalysisShare*   analysisShare;
+      CRecoveryShare*   recoveryShare;
+      
+      //local object share
+      CFilterShare      filterShare;       
+      CModelShare       modelShare;
+      CHedgeShare       hedgeShare;  
+      CSignalShare      signalShare;
+      CMarketShare      marketShare;
+      CClientShare      clientShare;     
+      
+   public:
+                          CShareCtl();
+                         ~CShareCtl();
+     
+         //--- methods of initilize
+         void                init(CIndicatorCtl* indicatorCtl); 
+         //--- refresh
+         void                refresh();
+         //--- get filter share
+         CFilterShare*       getFilterShare();
+         //--- get hedge share
+         CHedgeShare*        getHedgeShare();
+         //--- get model share
+         CModelShare*        getModelShare();
+         //--- get signal share
+         CSignalShare*       getSignalShare(); 
+         //--- get signal share
+         CSymbolShare*       getSymbolShare(); 
+         //--- get indicator share
+         CIndicatorShare*    getIndicatorShare(); 
+         //--- get analysis share  
+         CAnalysisShare*     getAnalysisShare();         
+         //--- get recovery share
+         CRecoveryShare*     getRecoveryShare();
+         //--- get market share
+         CMarketShare*       getMarketShare();
+         //--- get client share
+         CClientShare*       getClientShare();
+         //+------------------------------------------------------------------+
+         //|  get share properties  function
+         //+------------------------------------------------------------------+
+         
+         //--- get symbol correlation by symbol 
+         double              getSymbolCorrelation(string symbol1,string symbol2);
+         
+         //--- get client control
+         CClientCtl*         getClientCtl();
+         void                setClientCtl(CClientCtl* clientCtl); 
+         
+         //reload recovery info
+         void                reload(); 
+         //--- set model kind
+         void            setModelKind(int modelKind);
+         //--- get model kind
+         int             getModelKind();             
+};
+
+//+------------------------------------------------------------------+
+//|  initialize the class
+//+------------------------------------------------------------------+
+void CShareCtl::init(CIndicatorCtl* indicatorCtl){
+
+   this.indicatorCtl=indicatorCtl;
+   this.symbolShare=this.indicatorCtl.getSymbolShare();
+   this.indicatorShare=this.indicatorCtl.getIndicatorShare();
+   this.analysisShare=this.indicatorCtl.getAnalysisShare();
+   this.recoveryShare=this.indicatorCtl.getRecoveryShare();
+
+   this.modelShare.init(this.symbolShare,this.analysisShare,&this.marketShare);
+   this.hedgeShare.init(this.modelShare.getOrders(),
+                        this.indicatorShare,
+                        this.symbolShare,
+                        this.getMarketShare(),
+                        this.getClientShare());
+                        
+   this.getModelShare().getModelAnalysis().init(this.getSymbolShare().getSymbolInfos());
+   this.getModelShare().getModelAnalysisPre().init(this.getSymbolShare().getSymbolInfos());  
+}
+  
+//+------------------------------------------------------------------+
+//|  reset the share control
+//+------------------------------------------------------------------+
+void CShareCtl::refresh(void)
+{
+   //this.symbolShare.reSet();
+   //this.analysisShare.refresh(); 
+}  
+
+//+------------------------------------------------------------------+
+//|  get filter share
+//+------------------------------------------------------------------+
+CFilterShare* CShareCtl::getFilterShare(){
+   return &this.filterShare;
+}
+
+
+//+------------------------------------------------------------------+
+//|  get hedge share data
+//+------------------------------------------------------------------+
+CHedgeShare* CShareCtl::getHedgeShare(void)
+{
+   return &this.hedgeShare;
+}
+ 
+//+------------------------------------------------------------------+
+//|  get signal share data
+//+------------------------------------------------------------------+
+CSignalShare* CShareCtl::getSignalShare(void)
+{
+   return &this.signalShare;
+}  
+  
+//+------------------------------------------------------------------+
+//|  get model share data
+//+------------------------------------------------------------------+
+CModelShare* CShareCtl::getModelShare(void)
+{
+   return &this.modelShare;
+}
+
+//+------------------------------------------------------------------+
+//|  get order share data
+//+------------------------------------------------------------------+
+CSymbolShare* CShareCtl::getSymbolShare(void)
+{
+   return this.symbolShare;
+}
+
+//+------------------------------------------------------------------+
+//|  get signal share data
+//+------------------------------------------------------------------+
+CIndicatorShare* CShareCtl::getIndicatorShare(void)
+{
+   return this.indicatorShare;
+} 
+
+//+------------------------------------------------------------------+
+//|  get analysis share 
+//+------------------------------------------------------------------+ 
+CAnalysisShare* CShareCtl::getAnalysisShare()
+{
+   return this.analysisShare;
+}
+
+//+------------------------------------------------------------------+
+//|  get recovery share 
+//+------------------------------------------------------------------+ 
+CRecoveryShare* CShareCtl::getRecoveryShare(void)
+{
+   return this.recoveryShare;
+}
+
+//+------------------------------------------------------------------+
+//|  get market share 
+//+------------------------------------------------------------------+ 
+CMarketShare*  CShareCtl::getMarketShare(){
+   return &this.marketShare;
+}
+
+//+------------------------------------------------------------------+
+//|  get client share 
+//+------------------------------------------------------------------+ 
+CClientShare*  CShareCtl::getClientShare(){
+   return &this.clientShare;
+}
+
+//+------------------------------------------------------------------+
+//|  get symbol correlation value by symbol
+//+------------------------------------------------------------------+
+double CShareCtl::getSymbolCorrelation(string symbol1,
+                                             string symbol2){
+   int symbolIndex1=this.getSymbolShare().getSymbolIndex(symbol1);
+   int symbolIndex2=this.getSymbolShare().getSymbolIndex(symbol2);
+   return this.hedgeShare.getSymbolCorrelation(symbolIndex1,symbolIndex2);
+}
+
+//+------------------------------------------------------------------+
+//|  get client control
+//+------------------------------------------------------------------+
+CClientCtl* CShareCtl::getClientCtl(){
+   return this.clientCtl;
+}
+
+//+------------------------------------------------------------------+
+//|  get client control
+//+------------------------------------------------------------------+
+void CShareCtl::setClientCtl(CClientCtl* clientCtl){
+   this.clientCtl=clientCtl;
+   this.analysisShare.setClientCtl(this.clientCtl);
+   this.recoveryShare.setRecoveryDB(this.clientCtl.getDB());
+}      
+
+//+------------------------------------------------------------------+
+//| reload recovery info
+//+------------------------------------------------------------------+
+void CShareCtl::reload(){
+   this.recoveryShare.loadRangeInfo();
+   this.analysisShare.getCurRange().markReload();
+}
+
+//+------------------------------------------------------------------+
+//|  set modelKind
+//+------------------------------------------------------------------+
+void CShareCtl::setModelKind(int modelKind){
+   this.modelKind=modelKind;
+   
+   //set other object's model kind
+   this.getHedgeShare().setModelKind(this.modelKind);
+    
+}
+
+//+------------------------------------------------------------------+
+//|  set modelKind
+//+------------------------------------------------------------------+
+int CShareCtl::getModelKind(){
+   return this.modelKind;
+}
+
+
+//+------------------------------------------------------------------+
+//|  class constructor   
+//+------------------------------------------------------------------+
+CShareCtl::CShareCtl(){
+   //this.accountNo=AccountInfoInteger(ACCOUNT_LOGIN);
+   //this.reloadFlg=false;
+}
+CShareCtl::~CShareCtl(){}
