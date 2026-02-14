@@ -1,0 +1,8 @@
+# MT5 compiled files
+*.ex5
+
+# Tester
+# tester/
+
+# Runtime
+# MQL5/Files/

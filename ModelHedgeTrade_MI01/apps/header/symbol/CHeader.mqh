@@ -1,10 +1,1 @@
-//+------------------------------------------------------------------+
-//|                                                      CHeader.mqh |
-//|                                                         rkee.rkk |
-//|                                                                  |
-//+------------------------------------------------------------------+ 
-input  string   SYMBOL_SETTING="------ Trade Symbol Pair Setting ------";
-input  string      Symbol_Trade_List1="AUDNZD,AUDJPY,AUDUSD,AUDCAD,AUDCHF,CADJPY,CHFJPY,CADCHF,EURGBP,EURUSD";
-input  string      Symbol_Trade_List2="EURAUD,EURCHF,EURCAD,EURJPY,EURNZD,GBPCHF,GBPJPY,GBPAUD,GBPNZD,GBPCAD";
-input  string      Symbol_Trade_List3="GBPUSD,USDCHF,USDJPY,USDCAD,NZDJPY,NZDUSD,NZDCAD,NZDCHF,XAUUSD,XAGUSD";
-                   
+﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼††††††††††††††††††††††††††䌠效摡牥洮桱簠਍⼯⁼††††††††††††††††††††††††††††歲敥爮歫簠਍⼯⁼††††††††††††††††††††††††††††††††簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭ഠ椊灮瑵†瑳楲杮†匠䵙佂彌䕓呔义㵇ⴢⴭⴭ‭牔摡⁥祓扭汯倠楡⁲敓瑴湩⁧ⴭⴭⴭ㬢਍湩異⁴猠牴湩⁧††匠浹潢彬牔摡彥楌瑳㴱䄢䑕婎ⱄ啁䩄奐䄬䑕单ⱄ啁䍄䑁䄬䑕䡃ⱆ䅃䩄奐䌬䙈偊ⱙ䅃䍄䙈䔬剕䉇ⱐ啅啒䑓㬢਍湩異⁴猠牴湩⁧††匠浹潢彬牔摡彥楌瑳㴲䔢剕啁ⱄ啅䍒䙈䔬剕䅃ⱄ啅䩒奐䔬剕婎ⱄ䉇䍐䙈䜬偂偊ⱙ䉇䅐䑕䜬偂婎ⱄ䉇䍐䑁㬢਍湩異⁴猠牴湩⁧††匠浹潢彬牔摡彥楌瑳㴳䜢偂单ⱄ单䍄䙈唬䑓偊ⱙ单䍄䑁丬䑚偊ⱙ婎啄䑓丬䑚䅃ⱄ婎䍄䙈堬啁单ⱄ䅘啇䑓㬢਍†††††††††�
