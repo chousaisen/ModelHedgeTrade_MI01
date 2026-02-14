@@ -1,1 +1,303 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼†††††††††††††††††††††††䌠楆瑬牥硅整摮㄰⹉煭⁨ർ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⌊牰灯牥祴瘠牥楳湯†∠⸱〰ഢഊ⌊湩汣摵⁥⸢⼮䵃摯汥湉楤慣潴䙲汩整⹲煭≨਍椣据畬敤∠⸮ⸯ⼮⸮振浯⽭潃䙭湵㉣洮桱ഢഊ挊慬獳䌠楆瑬牥硅整摮㄰›異汢捩䌠潍敤䥬摮捩瑡牯楆瑬牥ഠ笊਍†††牰癩瑡㩥਍††††⼠猯牴湩⁧†††††琠慲敤敄污潌㭧਍††††戠潯⁬††††††愠橤獵䕴捸敥䑤晩㭦ഠ ††††潢汯†††††††敮摥效杤䙥杬഻ ††††湩⁴†††††††畣牲湥䕴捸敥䥤摮硥※਍††††戠潯⁬††††††挠湯楴畮䙥杬഻ ††††潢汯†††††††楦瑬牥敒畳瑬※††††਍†††異汢捩ഺ †††††††††††††䙃汩整䕲瑸湥つ⠱㬩਍†††††††††††††縠䙃汩整䕲瑸湥つ⠱㬩ഠ ††††⼯湩瑩映汩整൲ ††††潶摩†††††††湩瑩楆瑬牥⤨※†††††††††††††††††††††††ഠ ††††⼯硥整摮映汩整൲ ††††潢汯†††††††硥整摮楆瑬牥䌨潍敤䥬‪潭敤⥬഻ †ഠ ††††⼯档捥⁫硅散摥吠⁯畊灭਍††††戠潯⁬††††††攠瑸湥䙤汩整彲档捥䕫捸敥呤䩯浵⡰䵃摯汥⩉猠杩慮⥬഻ ††††⼯档捥⁫硅散摥吠⁯畃牲湥⁴畊灭਍††††戠潯⁬††††††攠瑸湥䙤汩整彲档捥䕫捸敥呤䍯牵畊灭䌨潍敤䥬‪楳湧污㬩††††ഠ ††††⼯档捥⁫瑳瑡獵਍††††戠潯⁬††††††攠瑸湥䙤汩整彲档捥卫慴畴⡳䵃摯汥⩉洠摯汥㬩††††ഠ ††††潢汯†††††††硥整摮楆瑬牥慟橤獵䕴瑸湥⡤䵃摯汥⩉洠摯汥㬩ഠ ††††潢汯†††††††硥整摮楆瑬牥桟摥敧慒整䌨潍敤䥬‪潭敤⥬※਍††††戠潯⁬††††††攠瑸湥䙤汩整彲档捥呫敲摮䌨潍敤䥬‪潭敤⥬※††††਍㭽਍†਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼映汩整⁲湩瑩਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠楆瑬牥硅整摮㄰㨺湩瑩楆瑬牥⤨ൻ †桴獩挮湯楴畮䙥杬琽畲㭥਍†琠楨⹳楦瑬牥敒畳瑬琽畲㭥਍†琠楨⹳牴摡䑥慥䱬杯∽㬢਍†琠楨⹳業摤敬潌㵧∢഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼映汩整⁲桴⁥硥整摮洠摯汥挨敨正搠晩⥦਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潢汯䌠楆瑬牥硅整摮㄰㨺硥整摮楆瑬牥䌨潍敤䥬‪潭敤⥬ൻഊ †⼯湩瑩映汩整൲ †桴獩椮楮䙴汩整⡲㬩†ഠ †桴獩琮慲敤敄污潌㵧㰢攼瑸湥䙤汩整㹲∾഻ †਍†⼠振敨正椠摮捩瑡牯爠慥祤਍†椠⡦琡楨⹳湩楤慣潴割慥祤⤨笩਍†††牴摡䑥慥䱬杯㴫㰢湩楤慣潴割慥祤∾഻ ††琠楨⹳楦瑬牥敒畳瑬昽污敳഻ ††琠楨⹳潣瑮湩敵汆㵧慦獬㭥਍†††桴獩愮摤敄畢䥧普⡯桴獩昮汩整割獥汵⥴഻ †⁽਍†ഠ †⼯潢汯爠噥污敵琽畲㭥਍†琠楨⹳摡番瑳硅散摥楄晦昽污敳഻ †桴獩渮敥䡤摥敧汆㵧慦獬㭥਍†††਍†⼠ 档捥⁫硅散摥吠⁯畊灭ഠ †晩琨楨⹳潣瑮湩敵汆⥧ൻ ††琠楨⹳楦瑬牥敒畳瑬琽楨⹳硥整摮楆瑬牥损敨正硅散摥潔畊灭洨摯汥㬩਍†††桴獩愮摤敄畢䥧普⡯桴獩昮汩整割獥汵⥴഻ †⁽††ഠ †ഠ †⼯挠敨正䔠捸敥⁤潔挠牵敲瑮䨠浵⁰਍†椠⡦桴獩挮湯楴畮䙥杬笩਍†††桴獩昮汩整割獥汵㵴桴獩攮瑸湥䙤汩整彲档捥䕫捸敥呤䍯牵畊灭洨摯汥㬩਍†††桴獩愮摤敄畢䥧普⡯桴獩昮汩整割獥汵⥴഻ †⁽††ഠ ††ഠ †⼯挠敨正洠摯汥猠慴畴⁳਍†椠⡦桴獩挮湯楴畮䙥杬笩਍†††桴獩昮汩整割獥汵㵴桴獩攮瑸湥䙤汩整彲档捥卫慴畴⡳潭敤⥬഻ ††琠楨⹳摡䑤扥杵湉潦琨楨⹳楦瑬牥敒畳瑬㬩਍†††桴獩挮湯楴畮䙥杬琽楨⹳楦瑬牥敒畳瑬഻ †ൽ ††ഠ †⼯挠敨正攠瑸湥⁤楤晦਍†椠⡦桴獩挮湯楴畮䙥杬笩਍†††桴獩昮汩整割獥汵㵴桴獩攮瑸湥䙤汩整彲摡番瑳硅整摮洨摯汥㬩਍†††桴獩愮摤敄畢䥧普⡯桴獩昮汩整割獥汵⥴഻ ††琠楨⹳潣瑮湩敵汆㵧桴獩昮汩整割獥汵㭴਍†素†††਍†ഠ †⼯档捥⁫敨杤⁥慲整਍†椠⡦桴獩挮湯楴畮䙥杬笩਍†††桴獩昮汩整割獥汵㵴桴獩攮瑸湥䙤汩整彲敨杤剥瑡⡥潭敤⥬഻ ††琠楨⹳摡䑤扥杵湉潦琨楨⹳楦瑬牥敒畳瑬㬩਍†††桴獩挮湯楴畮䙥杬琽楨⹳楦瑬牥敒畳瑬഻ †⁽††਍†ഠ †晩爨敫䱥杯搮扥杵敐楲摯㤨㈱ⰲ〳〰⤩ൻ ††琠楨⹳業摤敬潌㵧∠攼瑸湥䙤汩整㹲•‫桴獩昮汩整割獥汵⁴਍†††††††††††‫㰢牯敤呲灹㹥⬢挠浯畆据朮瑥牏敤呲灹⡥潭敤⹬敧呴慲敤祔数⤨ഩ ††††††††††⬠∠ⴭ∭⬠†桴獩洮摩汤䱥杯഻ ††爠敫䱥杯眮楲整潌⡧潣䙭湵⹣敧䑴瑡彥奙奙䵍䑄䡈䵍⠲⬩∠†•‫桴獩洮摩汤䱥杯ബ †††††††††††∠䙃汩整䕲瑸湥つ∱㬩਍†素†††਍†ഠ †敲畴湲琠楨⹳楦瑬牥敒畳瑬഻紊਍਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼映汩整⁲桴⁥硥整摮洠摯汥挠敨正䔠捸敥⁤潔䨠浵൰⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ戊潯⁬䙃汩整䕲瑸湥つ㨱攺瑸湥䙤汩整彲档捥䕫捸敥呤䩯浵⡰䵃摯汥⩉洠摯汥笩਍਍†琠慲敤敄污潌㵧㰢挼敨正硅散摥潔畊灭㸾㬢਍†琠慲敤敄污潌⭧∽䔼捸敥偤潲楦㹴•‫瑓楲杮潆浲瑡∨⸥昲Ⱒ桴獩朮瑥潍敤卬慨敲⤨朮瑥潍敤䅬慮祬楳偳敲⤨朮瑥硅散摥畃偲潲楦⡴⤩഻ †牴摡䑥慥䱬杯㴫㰢硥散摥慓敭祔数∾⬠琠楨⹳硥散摥慓敭祔数洨摯汥朮瑥牔摡呥灹⡥⤩※††ഠ †⼯硥散摥琠⁯番灭਍†椠⡦則䑉佟䕐彎塅䕃䑅䩟䵕൐ ††☠…桴獩攮捸敥呤䩯浵⡰則䑉佟䕐彎塅䕃䑅䩟䵕彐䥍彎䥐卐⤩ൻ ††琠慲敤敄污潌⭧∽攼捸敥呤䩯浵㹰㬢਍†††晩琨楨⹳硥散摥慓敭祔数洨摯汥朮瑥牔摡呥灹⡥⤩笩਍††††琠慲敤敄污潌⭧∽攼捸敥卤浡呥灹㹥㬢਍††††琠楨⹳摡番瑳硅散摥楄晦琽畲㭥਍††††琠楨⹳畣牲湥䕴捸敥䥤摮硥琽楨⹳敧䍴牵敲瑮硅散摥湉敤⡸潭敤⹬敧却浹潢䥬摮硥⤨洬摯汥朮瑥牔摡呥灹⡥⤩഻ ††††潤扵敬攠瑸湥䵤硡牏敤㵲桴獩朮瑥摁番瑳硅散摥硅整摮慍佸摲牥⡳桴獩挮牵敲瑮硅散摥湉敤⥸഻ ††††潤扵敬挠牵牏敤䍲畯瑮洽摯汥朮瑥牏敤䍲畯瑮⤨഻ ††††⼯洠硡攠瑸湥⁤牯敤⁲桷湥攠捸敥൤ ††††晩挨牵牏敤䍲畯瑮攼瑸湥䵤硡牏敤⥲⁻†††††ഠ †††††琠慲敤敄污潌⭧∽洼硡牏敤㹲•‫畣佲摲牥潃湵㭴਍††††††桴獩挮湯楴畮䙥杬昽污敳഻ †††††爠瑥牵⁮牴敵഻ ††††ൽ ††素਍†素਍†ഠ †敲畴湲映污敳഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼映汩整⁲桴⁥硥整摮洠摯汥挠敨正䔠捸敥⁤潴挠牵敲瑮䨠浵൰⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ戊潯⁬䙃汩整䕲瑸湥つ㨱攺瑸湥䙤汩整彲档捥䕫捸敥呤䍯牵畊灭䌨潍敤䥬‪潭敤⥬ൻഊ †牴摡䑥慥䱬杯∽㰼档捥䕫捸敥呤䩯浵㹰∾഻ ††ഠ †⼯硥散摥琠⁯番灭਍†椠⡦則䑉佟䕐彎塅䕃䑅䍟剕䩟䵕൐ ††††☦琠楨⹳硥散摥潔畃䩲浵⡰則䑉佟䕐彎塅䕃䑅䩟䵕彐啃归䥍彎䥐卐⤩ൻ ††††牴摡䑥慥䱬杯㴫㰢硥散摥潔畃䩲浵㹰㬢਍††††椠⡦桴獩攮捸敥卤浡䍥牵祔数洨摯汥朮瑥牔摡呥灹⡥⤩笩਍††††††牴摡䑥慥䱬杯㴫㰢硥散摥慓敭畃呲灹㹥㬢਍††††††桴獩愮橤獵䕴捸敥䑤晩㵦牴敵഻ †††††琠楨⹳畣牲湥䕴捸敥䥤摮硥琽楨⹳敧䍴牵敲瑮硅散摥湉敤⡸潭敤⹬敧却浹潢䥬摮硥⤨洬摯汥朮瑥牔摡呥灹⡥⤩഻ †††††搠畯汢⁥硥整摮慍佸摲牥琽楨⹳敧䅴橤獵䕴捸敥䕤瑸湥䵤硡牏敤獲琨楨⹳畣牲湥䕴捸敥䥤摮硥㬩਍††††††潤扵敬挠牵牏敤䍲畯瑮洽摯汥朮瑥牏敤䍲畯瑮⤨഻ †††††⼠ 慭⁸硥整摮漠摲牥眠敨⁮硥散摥਍††††††晩挨牵牏敤䍲畯瑮攼瑸湥䵤硡牏敤⥲⁻†††††ഠ †††††††牴摡䑥慥䱬杯㴫㰢慭佸摲牥∾⬠挠牵牏敤䍲畯瑮഻ †††††††桴獩挮湯楴畮䙥杬昽污敳഻ †††††††敲畴湲琠畲㭥਍††††††ൽ ††††ൽ †⁽††ഠ †਍†爠瑥牵⁮慦獬㭥਍ൽഊഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†楦瑬牥琠敨漠数⁮潭敤⁬档捥⁫瑳瑡獵਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潢汯䌠楆瑬牥硅整摮㄰㨺硥整摮楆瑬牥损敨正瑓瑡獵䌨潍敤䥬‪潭敤⥬ൻഊ †牴摡䑥慥䱬杯∽㰼档捥卫慴畴㹳∾഻ ††††਍†⼠洯摯汥爠湡敧਍†椠⡦桴獩爮湡敧⤨簠⁼桴獩琮敲摮潔慒杮⡥⤩⁻††ഠ ††琠慲敤敄污潌⭧∽爼湡敧㰾敮摥效杤㹥㬢ഠ ††琠楨⹳敮摥效杤䙥杬琽畲㭥††ഠ ††爠瑥牵⁮牴敵഻ †敽獬⁥晩琨楨⹳牴湥呤䩯浵⡰⤩⁻ഠ ††⼠洯摯汥琠敲摮†††਍†††牴摡䑥慥䱬杯㴫㰢牴湥呤䩯浵㹰㬢਍†††晩琨楨⹳慳敭牔湥⡤潭敤⹬敧呴慲敤祔数⤨⤩ൻ ††††牴摡䑥慥䱬杯㴫㰢慳敭牔湥㹤㬢ഠ ††††桴獩愮橤獵䕴捸敥䑤晩㵦牴敵഻ ††††桴獩挮牵敲瑮硅散摥湉敤㵸桴獩朮瑥畃牲湥䕴捸敥䥤摮硥洨摯汥朮瑥祓扭汯湉敤⡸Ⱙ潭敤⹬敧呴慲敤祔数⤨㬩††††ഠ ††††潤扵敬攠瑸湥䵤硡牏敤㵲桴獩朮瑥摁番瑳硅散摥硅整摮慍佸摲牥⡳桴獩挮牵敲瑮硅散摥湉敤⥸഻ ††††潤扵敬挠牵牏敤䍲畯瑮洽摯汥朮瑥牏敤䍲畯瑮⤨഻ ††††⼯洠硡攠瑸湥⁤牯敤⁲桷湥攠捸敥൤ ††††晩挨牵牏敤䍲畯瑮攼瑸湥䵤硡牏敤⥲⁻†††††ഠ †††††琠慲敤敄污潌⭧∽洼硡牏敤㹲•‫潭敤⹬敧佴摲牥潃湵⡴㬩਍††††††敲畴湲琠畲㭥਍††††素਍†††ൽ †ൽ †਍†爠瑥牵⁮慦獬㭥਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†楦瑬牥琠敨攠瑸湥⁤潭敤⡬档捥⁫楤晦ഩ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ戊潯⁬䙃汩整䕲瑸湥つ㨱攺瑸湥䙤汩整彲摡番瑳硅整摮䌨潍敤䥬‪潭敤⥬ൻ †਍†椠⡦䜡䥒彄偏久䕟员久彄塅䕃䑅䅟䩄单彔䥄䙆爩瑥牵⁮牴敵഻ †਍†琠慲敤敄污潌⭧∽㰼摡番瑳硅整摮㸾㬢਍†⼠ 湯祬攠瑸湥⁤祢爠湡敧਍†椠⡦桴獩愮橤獵䕴捸敥䑤晩⥦ൻ ††⼠搯畯汢⁥牧摩楄晦慒整ㄽ഻ ††⼠椯瑮挠牵敲瑮硅散摥湉敤㵸桴獩朮瑥畃牲湥䕴捸敥䥤摮硥洨摯汥朮瑥祓扭汯湉敤⡸⤩഻ ††搠畯汢⁥牧摩楄晦慒整挽浯畆据⸲敧䍴牵敶噤污敵䜨䥒彄偏久䕟员久彄塅彔䑁啊呓䝟佒彗䅒䕔ബ ††††††††††††††††††††††桴獩挮牵敲瑮硅散摥湉敤ⱸ਍††††††††††††††††††††††䜠䥒彄偏久䕟员久彄塅彔䑁啊呓䉟䝅义䍟問呎ബ ††††††††††††††††††††††則䑉佟䕐彎塅䕔䑎䕟员䅟䩄单彔久彄佃乕ⱔ਍††††††††††††††††††††††䜠䥒彄偏久䕟员久彄塅彔䑁啊呓䵟义剟呁ⱅ਍††††††††††††††††††††††䜠䥒彄偏久䕟员久彄塅彔䑁啊呓䵟塁剟呁⥅※†††਍†††潭敤⹬敳䕴瑸湥剤瑡⡥牧摩楄晦慒整㬩਍†††牴摡䑥慥䱬杯㴫㰢畣牲湥䕴捸敥䥤摮硥∾⬠琠楨⹳畣牲湥䕴捸敥䥤摮硥਍††††††††‫㰢牧摩楄晦慒整∾⬠朠楲䑤晩剦瑡㭥਍†素਍†爠瑥牵⁮牴敵഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼映汩整⁲桴⁥硥整摮洠摯汥栠摥敧爠瑡൥⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ戊潯⁬䙃汩整䕲瑸湥つ㨱攺瑸湥䙤汩整彲敨杤剥瑡⡥䵃摯汥⩉洠摯汥笩਍†ഠ †牴摡䑥慥䱬杯∽㰼敨杤剥瑡㹥∾※਍†ഠ †晩ℨ則䑉佟䕐彎塅䕔䑎䡟䑅䕇爩瑥牵⁮牴敵※†††††਍†椠⡦桴獩朮瑥牏敤䍲畯瑮⤨㴼則䑉佟䕐彎䕈䝄彅䥍彎剏䕄归佃乕⥔ൻ ††琠慲敤敄污潌⭧∽洼湩牏敤䍲畯瑮∾※਍†††敲畴湲琠畲㭥਍†素਍††††਍†戠潯⁬†敲慖畬㵥牴敵※ഠ †晩琨楨⹳敮摥效杤䙥杬笩਍†††਍†††牴摡䑥慥䱬杯㴫㰢敮摥效杤䙥杬∾※†††ഠ ††搠畯汢⁥敨杤剥瑡㵥桴獩栮摥敧慒整⤨※††਍†††潤扵敬愠橤獵䡴摥敧慒整琽楨⹳敧䅴橤獵剴獩䡫摥敧慒整䜨䥒彄偏久䕟员久彄䥍彎䥒䭓䕟䍘䕅彄剐䙏呉ബ †††††††††††††††††††††††††††††則䑉佟䕐彎塅䕔䑎䵟塁剟卉彋塅䕃䑅偟佒䥆ⱔ਍†††††††††††††††††††††††††††††䜠䥒彄偏久䕟员久彄䥍彎䥒䭓䡟䑅䕇剟呁ⱅ਍†††††††††††††††††††††††††††††䜠䥒彄偏久䕟员久彄䅍彘䥒䭓䡟䑅䕇剟呁ⱅ਍†††††††††††††††††††††††††††††䜠䥒彄偏久䕟员久彄䥒䭓䡟䑅䕇䝟佒彗䅒䕔㬩ഠഊ ††琠慲敤敄污潌⭧∽格摥敧慒整∾‫瑓楲杮潆浲瑡∨⸥昲Ⱒ敨杤剥瑡⥥਍†††††††⬠∠愼橤獵䡴摥敧慒整∾‫瑓楲杮潆浲瑡∨⸥昲Ⱒ摡番瑳效杤剥瑡⥥※†਍†††਍†††晩栨摥敧慒整愼橤獵䡴摥敧慒整笩਍††††搠畯汢⁥敨杤䱥瑯琽楨⹳灯湥效杤䱥瑯洨摯汥㬩਍††††琠慲敤敄污潌⭧∽格摥敧潌㹴•‫瑓楲杮潆浲瑡∨⸥昲Ⱒ敨杤䱥瑯㬩਍††††椠⡦敨杤䱥瑯㴼⤰ൻ †††††琠慲敤敄污潌⭧∽格摥敧显污敳㬢†ഠ †††††爠噥污敵昽污敳഻ ††††⁽ഠ ††素†ഠ ††ഠ †⁽††਍†ഠ †牴摡䑥慥䱬杯㴫㰢敲慖畬㹥•‫敲慖畬㭥਍†椠⡦敲慖畬⥥潬䑧瑡⹡摡䑤扥杵湉潦琨慲敤敄污潌⥧※†ഠ ††਍†爠瑥牵⁮敲慖畬㭥਍ൽഊഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†档捥⁫牴湥൤⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ戊潯⁬䙃汩整䕲瑸湥つ㨱攺瑸湥䙤汩整彲档捥呫敲摮䌨潍敤䥬‪潭敤⥬ൻഊ †湩⁴祳扭汯湉敤㵸潭敤⹬敧却浹潢䥬摮硥⤨഻ †瑳楲杮猠浹潢㵬潣䙭湵⹣摡卤晵楦⡸奓䉍䱏䱟卉孔祳扭汯湉敤嵸㬩਍†椠瑮琠敲摮汆㵧潣䙭湵㉣朮瑥慓呲敲摮汆⡧祳扭汯㬩਍†椠⡦潭敤⹬敧呴慲敤祔数⤨㴽剏䕄归奔䕐䉟奕笩਍†††晩琨敲摮汆㵧䤽䑎呟䕒䑎啟⥐ൻ ††††敲畴湲琠畲㭥਍†††ൽ †敽獬筥਍†††晩琨敲摮汆㵧䤽䑎呟䕒䑎䑟坏⥎ൻ ††††敲畴湲琠畲㭥਍†††⁽†਍†素਍਍†爠瑥牵⁮慦獬㭥਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†汣獡⁳潣獮牴捵潴⁲†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䙃汩整䕲瑸湥つ㨱䌺楆瑬牥硅整摮㄰⤨絻਍䙃汩整䕲瑸湥つ㨱縺䙃汩整䕲瑸湥つ⠱笩਍ൽ 
+//+------------------------------------------------------------------+
+//|                                                CFilterExtend01I.mqh |
+//+------------------------------------------------------------------+
+#property version   "1.00"
+
+#include "../CModelIndicatorFilter.mqh"
+#include "../../../comm/ComFunc2.mqh"
+
+class CFilterExtend01: public CModelIndicatorFilter 
+{
+      private:
+         //string            tradeDealLog;
+         bool              adjustExceedDiff; 
+         bool              needHedgeFlg;
+         int               currentExceedIndex; 
+         bool              continueFlg;
+         bool              filterResult;         
+      public:
+                           CFilterExtend01();
+                           ~CFilterExtend01(); 
+         //init filter
+         void              initFilter();                                                
+         //extend filter
+         bool              extendFilter(CModelI* model);
+    
+         //check Exceed To Jump
+         bool              extendFilter_checkExceedToJump(CModelI* signal);
+         //check Exceed To Current Jump
+         bool              extendFilter_checkExceedToCurJump(CModelI* signal);         
+         //check status
+         bool              extendFilter_checkStatus(CModelI* model);         
+         bool              extendFilter_adjustExtend(CModelI* model); 
+         bool              extendFilter_hedgeRate(CModelI* model); 
+         bool              extendFilter_checkTrend(CModelI* model);         
+};
+  
+
+//+------------------------------------------------------------------+
+//|  filter init
+//+------------------------------------------------------------------+
+void CFilterExtend01::initFilter(){
+   this.continueFlg=true;
+   this.filterResult=true;
+   this.tradeDealLog="";
+   this.middleLog="";
+}
+
+//+------------------------------------------------------------------+
+//|  filter the extend model(check diff)
+//+------------------------------------------------------------------+
+bool CFilterExtend01::extendFilter(CModelI* model){
+
+   //init filter
+   this.initFilter();   
+   this.tradeDealLog="<<extendFilter>>";
+   
+   //check indicator ready
+   if(!this.indicatorReady()){
+      tradeDealLog+="<indicatorReady>";
+      this.filterResult=false;
+      this.continueFlg=false;
+      this.addDebugInfo(this.filterResult);
+   } 
+   
+   //bool reValue=true;
+   this.adjustExceedDiff=false;
+   this.needHedgeFlg=false;
+      
+   // check Exceed To Jump 
+   if(this.continueFlg){
+      this.filterResult=this.extendFilter_checkExceedToJump(model);
+      this.addDebugInfo(this.filterResult);
+   }      
+    
+   // check Exceed To current Jump 
+   if(this.continueFlg){
+      this.filterResult=this.extendFilter_checkExceedToCurJump(model);
+      this.addDebugInfo(this.filterResult);
+   }      
+      
+   // check model status 
+   if(this.continueFlg){
+      this.filterResult=this.extendFilter_checkStatus(model);
+      this.addDebugInfo(this.filterResult);
+      this.continueFlg=this.filterResult;
+   }
+      
+   // check extend diff
+   if(this.continueFlg){
+      this.filterResult=this.extendFilter_adjustExtend(model);
+      this.addDebugInfo(this.filterResult);
+      this.continueFlg=this.filterResult;
+   }      
+   
+   //check hedge rate
+   if(this.continueFlg){
+      this.filterResult=this.extendFilter_hedgeRate(model);
+      this.addDebugInfo(this.filterResult);
+      this.continueFlg=this.filterResult;
+   }     
+   
+   if(rkeeLog.debugPeriod(9122,3000)){
+      this.middleLog= "<extendFilter>" + this.filterResult 
+                      + "<orderType>"+ comFunc.getOrderType(model.getTradeType())
+                      + "---" +  this.middleLog;
+      rkeeLog.writeLog(comFunc.getDate_YYYYMMDDHHMM2()+ "  " + this.middleLog,
+                        "CFilterExtend01");
+   }      
+   
+   return this.filterResult;
+}
+
+
+//+------------------------------------------------------------------+
+//|  filter the extend model check Exceed To Jump
+//+------------------------------------------------------------------+
+bool CFilterExtend01::extendFilter_checkExceedToJump(CModelI* model){
+
+   tradeDealLog="<<checkExceedToJump>>";
+   tradeDealLog+="<ExceedProfit>" + StringFormat("%.2f",this.getModelShare().getModelAnalysisPre().getExceedCurProfit());
+   tradeDealLog+="<exceedSameType>" + this.exceedSameType(model.getTradeType());      
+   //exceed to jump
+   if(GRID_OPEN_EXCEED_JUMP
+      && this.exceedToJump(GRID_OPEN_EXCEED_JUMP_MIN_PIPS)){
+      tradeDealLog+="<exceedToJump>";
+      if(this.exceedSameType(model.getTradeType())){
+         tradeDealLog+="<exceedSameType>";
+         this.adjustExceedDiff=true;
+         this.currentExceedIndex=this.getCurrentExceedIndex(model.getSymbolIndex(),model.getTradeType());
+         double extendMaxOrder=this.getAdjustExceedExtendMaxOrders(this.currentExceedIndex);
+         double curOrderCount=model.getOrderCount();
+         // max extend order when exceed
+         if(curOrderCount<extendMaxOrder){            
+            tradeDealLog+="<maxOrder>" + curOrderCount;
+            this.continueFlg=false;
+            return true;
+         }
+      }
+   }
+   
+   return false;
+}
+
+//+------------------------------------------------------------------+
+//|  filter the extend model check Exceed to current Jump
+//+------------------------------------------------------------------+
+bool CFilterExtend01::extendFilter_checkExceedToCurJump(CModelI* model){
+
+   tradeDealLog="<<checkExceedToJump>>";
+      
+   //exceed to jump
+   if(GRID_OPEN_EXCEED_CUR_JUMP
+         && this.exceedToCurJump(GRID_OPEN_EXCEED_JUMP_CUR_MIN_PIPS)){
+         tradeDealLog+="<exceedToCurJump>";
+         if(this.exceedSameCurType(model.getTradeType())){
+            tradeDealLog+="<exceedSameCurType>";
+            this.adjustExceedDiff=true;
+            this.currentExceedIndex=this.getCurrentExceedIndex(model.getSymbolIndex(),model.getTradeType());
+            double extendMaxOrder=this.getAdjustExceedExtendMaxOrders(this.currentExceedIndex);
+            double curOrderCount=model.getOrderCount();
+            // max extend order when exceed
+            if(curOrderCount<extendMaxOrder){            
+               tradeDealLog+="<maxOrder>" + curOrderCount;
+               this.continueFlg=false;
+               return true;
+            }
+         }
+   }      
+   
+   return false;
+}
+
+
+//+------------------------------------------------------------------+
+//|  filter the open model check status
+//+------------------------------------------------------------------+
+bool CFilterExtend01::extendFilter_checkStatus(CModelI* model){
+
+   tradeDealLog="<<checkStatus>>";
+         
+   //model range
+   if(this.range() || this.trendToRange()){      
+      tradeDealLog+="<range><needHedge>"; 
+      this.needHedgeFlg=true;     
+      return true;
+   }else if(this.trendToJump()){  
+      //model trend      
+      tradeDealLog+="<trendToJump>";
+      if(this.sameTrend(model.getTradeType())){
+         tradeDealLog+="<sameTrend>"; 
+         this.adjustExceedDiff=true;
+         this.currentExceedIndex=this.getCurrentExceedIndex(model.getSymbolIndex(),model.getTradeType());         
+         double extendMaxOrder=this.getAdjustExceedExtendMaxOrders(this.currentExceedIndex);
+         double curOrderCount=model.getOrderCount();
+         // max extend order when exceed
+         if(curOrderCount<extendMaxOrder){            
+            tradeDealLog+="<maxOrder>" + model.getOrderCount();
+            return true;
+         }
+      }
+   }
+   
+   return false;
+}
+
+//+------------------------------------------------------------------+
+//|  filter the extend model(check diff)
+//+------------------------------------------------------------------+
+bool CFilterExtend01::extendFilter_adjustExtend(CModelI* model){
+   
+   if(!GRID_OPEN_EXTEND_EXCEED_ADJUST_DIFF)return true;
+   
+   tradeDealLog+="<<adjustExtend>>";
+   // only extend by range
+   if(this.adjustExceedDiff){
+      //double gridDiffRate=1;
+      //int currentExceedIndex=this.getCurrentExceedIndex(model.getSymbolIndex());
+      double gridDiffRate=comFunc2.getCurvedValue(GRID_OPEN_EXTEND_EXT_ADJUST_GROW_RATE,
+                                             this.currentExceedIndex,
+                                             GRID_OPEN_EXTEND_EXT_ADJUST_BEGIN_COUNT,
+                                             GRID_OPEN_EXTEND_EXT_ADJUST_END_COUNT,
+                                             GRID_OPEN_EXTEND_EXT_ADJUST_MIN_RATE,
+                                             GRID_OPEN_EXTEND_EXT_ADJUST_MAX_RATE);       
+      model.setExtendRate(gridDiffRate);
+      tradeDealLog+="<currentExceedIndex>" + this.currentExceedIndex
+                + "<gridDiffRate>" + gridDiffRate;
+   }
+   return true;
+}
+
+//+------------------------------------------------------------------+
+//|  filter the extend model hedge rate
+//+------------------------------------------------------------------+
+bool CFilterExtend01::extendFilter_hedgeRate(CModelI* model){
+   
+   tradeDealLog="<<hedgeRate>>"; 
+   
+   if(!GRID_OPEN_EXTEND_HEDGE)return true;           
+   if(this.getOrderCount()<=GRID_OPEN_HEDGE_MIN_ORDER_COUNT){
+      tradeDealLog+="<minOrderCount>"; 
+      return true;
+   }
+        
+   bool   reValue=true;  
+   if(this.needHedgeFlg){
+      
+      tradeDealLog+="<needHedgeFlg>";        
+      double hedgeRate=this.hedgeRate();     
+      double adjustHedgeRate=this.getAdjustRiskHedgeRate(GRID_OPEN_EXTEND_MIN_RISK_EXCEED_PROFIT,
+                                                           GRID_OPEN_EXTEND_MAX_RISK_EXCEED_PROFIT,
+                                                           GRID_OPEN_EXTEND_MIN_RISK_HEDGE_RATE,
+                                                           GRID_OPEN_EXTEND_MAX_RISK_HEDGE_RATE,
+                                                           GRID_OPEN_EXTEND_RISK_HEDGE_GROW_RATE); 
+
+      tradeDealLog+="<hedgeRate>"+ StringFormat("%.2f",hedgeRate)
+               + "<adjustHedgeRate>"+ StringFormat("%.2f",adjustHedgeRate);   
+      
+      if(hedgeRate<adjustHedgeRate){
+         double hedgeLot=this.openHedgeLot(model);
+         tradeDealLog+="<hedgeLot>" + StringFormat("%.2f",hedgeLot);
+         if(hedgeLot<=0){
+            tradeDealLog+="<hedge>false";   
+            reValue=false;
+         }  
+      }   
+      
+   }     
+   
+   tradeDealLog+="<reValue>" + reValue;
+   if(reValue)logData.addDebugInfo(tradeDealLog);    
+     
+   return reValue;
+}
+
+
+//+------------------------------------------------------------------+
+//|  check trend
+//+------------------------------------------------------------------+
+bool CFilterExtend01::extendFilter_checkTrend(CModelI* model){
+
+   int symbolIndex=model.getSymbolIndex();
+   string symbol=comFunc.addSuffix(SYMBOL_LIST[symbolIndex]);
+   int trendFlg=comFunc2.getSarTrendFlg(symbol);
+   if(model.getTradeType()==ORDER_TYPE_BUY){
+      if(trendFlg==IND_TREND_UP){
+         return true;
+      }
+   }else{
+      if(trendFlg==IND_TREND_DOWN){
+         return true;
+      }   
+   }
+
+   return false;
+}
+
+//+------------------------------------------------------------------+
+//|  class constructor   
+//+------------------------------------------------------------------+
+CFilterExtend01::CFilterExtend01(){}
+CFilterExtend01::~CFilterExtend01(){
+}
+ 

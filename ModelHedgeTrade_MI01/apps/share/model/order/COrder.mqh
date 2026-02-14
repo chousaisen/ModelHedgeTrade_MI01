@@ -1,1 +1,218 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼†††††††††††††††††††††††††吠慲敤楌敮洮桱簠਍⼯⁼††††††††††††††††䌠灯特杩瑨㈠㈰ⰴ删敫䍥浯䰠摴‮†簠਍⼯⁼††††††††††††††††††††††਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍਍਍椣据畬敤㰠扏敪瑣洮桱ാ⌊湩汣摵⁥⸢尮⸮⹜尮敨摡牥䍜敄楦敮洮桱ഢഊ挊慬獳䌠牏敤⁲›異汢捩䌠扏敪瑣਍†ൻ †牰癩瑡㩥਍਍†⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ †⼯⁼猠浹潢⁬慰慲⁭†਍†⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫††ഠ ††椠瑮††††††††祳扭汯湉敤㭸਍†††瑳楲杮††††††猠浹潢㭬਍†††久䵕佟䑒剅呟偙⁅†漠摲牥祔数※††ഠ †⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭††਍਍†⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ †⼯⁼琠慲敤挠湯牴汯瀠牡浡਍†⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫ഠ ††椠瑮琠慲敤瑓瑡獵഻ ††椠瑮琠慲敤祔数഻ ††ഠ ††⼠ 整瑳戠来湩਍†††潢汯搠慥䙬杬഻ ††戠潯⁬汣慥䙲杬഻ ††猠牴湩⁧捡楴湯汆㭧਍†††⼯琠獥⁴湥൤ഊ †⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍†ഠ †⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍†⼠簯†牯敤⁲潣瑮潲⁬慰慲൭ †⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭†਍†††湩⁴†潭敤䭬湩㭤††††⼯潭敤⁬楫摮਍†††汵湯⁧†潭敤䥬㭤†††††⼯潭敤⁬摩⠠敧啴楮畱䥥瑮⤨ഩ ††椠瑮†漠摲牥湉敤㭸†††⼠漯摲牥椠摮硥漠⁲牯敤⁲瑳瑡獵਍†††慤整楴敭猠慴瑲楔敭※††⼯瑳牡呴浩൥ ††搠瑡瑥浩⁥湥呤浩㭥†††⼠支摮楔敭਍†††湩⁴††爠呥祲潃湵㭴††⼯爠瑥祲挠畯瑮眠敨⁮牥潲⁲慨灰湥਍†††湩⁴††攠牲牯潃敤※††⼯琠慲敤攠牲牯挠摯൥ †⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭††††††††††††ഠഊ †⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍†⼠簯†慭歲瑥椠普⁯†਍†⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫†਍†††汵湯⁧†楴正瑥※††††⼯楴正瑥਍†††潤扵敬†灯湥牐捩㭥†††⼯灯湥瀠楲散਍†††潤扵敬†灴楌敮※††††⼯灴楌敮਍†††潤扵敬†汳楌敮※††††⼯汳楌敮਍†††潤扵敬†湩瑩潌㭴††††⼯湩瑩氠瑯਍†††潤扵敬†潬㭴††††††⼯潬൴ ††搠畯汢⁥瀠潲整瑣潬㭴††⼠爯獩⁫牰瑯捥⁴潬൴ ††搠畯汢⁥瀠潲楦㭴††††⼠瀯灩⁳牰景瑩਍†††潤扵敬†牰景瑩畃牲湥祣※††††⼯潭敮⁹牰景瑩਍†††潤扵敬†睳灡※††††††⼯睳灡਍†††湩⁴††灳敲摡※†††††⼯灳敲摡਍†††汵湯⁧†慭楧㭣†††††⼯慭楧ൣ ††猠牴湩⁧挠浯敭瑮※†††⼠振浯敭瑮਍†⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫਍†ഠ †⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍†⼠簯†祳扭汯瀠牥数瑲敩൳ †⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭†ഠ ††搠畯汢⁥瀠楯瑮※†††††⼠猯浹潢⁬潰湩൴ ††ഠ †⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍†⼠簯†敨杤⁥数灲牥楴獥਍†⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫†਍†††潢汯††敨杤䱥捯㭫਍†††਍†††ഠ †異汢捩›††ഠ ††䌠牏敤⡲㬩਍††縠佃摲牥⤨※††ഠ ††਍††⼠琯獥⁴敢楧൮ ††⼯䜠瑥整⁲湡⁤敓瑴牥映牯搠慥⁬汦条਍††潢汯朠瑥敄污汆⡧ ⁻敲畴湲搠慥䙬杬※ൽ †瘠楯⁤敳䑴慥䙬杬戨潯⁬慶畬⥥笠搠慥䙬杬㴠瘠污敵※⁽਍††਍††潢汯朠瑥汃慥䙲杬⤨笠爠瑥牵⁮汣慥䙲杬※ൽ †瘠楯⁤敳䍴敬牡汆⡧潢汯瘠污敵 ⁻汣慥䙲杬㴠瘠污敵※⁽††਍††††††ഠ ††⼯整瑳攠摮਍††††††ഠ ††⼯䜠瑥整⁲湡⁤敓瑴牥映牯猠浹潢൬ †猠牴湩⁧敧却浹潢⡬ ⁻敲畴湲猠浹潢㭬素਍††潶摩猠瑥祓扭汯猨牴湩⁧慶畬⥥笠猠浹潢⁬‽慶畬㭥素਍਍††⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲祳扭汯椠摮硥਍††湩⁴敧却浹潢䥬摮硥⤨笠爠瑥牵⁮祳扭汯湉敤㭸素਍††潶摩猠瑥祓扭汯湉敤⡸湩⁴慶畬⥥笠猠浹潢䥬摮硥㴠瘠污敵※ൽഊ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲牯敤呲灹൥ †䔠啎彍剏䕄归奔䕐朠瑥牏敤呲灹⡥ ⁻敲畴湲漠摲牥祔数※ൽ †瘠楯⁤敳佴摲牥祔数䔨啎彍剏䕄归奔䕐瘠污敵 ⁻牯敤呲灹⁥‽慶畬㭥素਍਍††⼯䜠瑥整⁲湡⁤敓瑴牥映牯琠慲敤瑓瑡獵਍††湩⁴敧呴慲敤瑓瑡獵⤨笠爠瑥牵⁮牴摡卥慴畴㭳素਍††潶摩猠瑥牔摡卥慴畴⡳湩⁴慶畬⥥笠琠慲敤瑓瑡獵㴠瘠污敵※ൽ †ഠ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲牴摡呥灹൥ †椠瑮朠瑥牔摡呥灹⡥ ⁻敲畴湲琠慲敤祔数※ൽ †瘠楯⁤敳呴慲敤祔数椨瑮瘠污敵 ⁻牴摡呥灹⁥‽慶畬㭥素††਍਍††⼯䜠瑥整⁲湡⁤敓瑴牥映牯洠摯汥楋摮਍††湩⁴敧䵴摯汥楋摮⤨笠爠瑥牵⁮潭敤䭬湩㭤素਍††潶摩猠瑥潍敤䭬湩⡤湩⁴慶畬⥥笠洠摯汥楋摮㴠瘠污敵※ൽഊ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲潭敤䥬൤ †甠潬杮朠瑥潍敤䥬⡤ ⁻敲畴湲洠摯汥摉※ൽ †瘠楯⁤敳䵴摯汥摉用潬杮瘠污敵 ⁻潭敤䥬⁤‽慶畬㭥素਍਍††⼯䜠瑥整⁲湡⁤敓瑴牥映牯漠摲牥湉敤൸ †椠瑮朠瑥牏敤䥲摮硥⤨笠爠瑥牵⁮牯敤䥲摮硥※ൽ †瘠楯⁤敳佴摲牥湉敤⡸湩⁴慶畬⥥笠漠摲牥湉敤⁸‽慶畬㭥素਍਍††⼯䜠瑥整⁲湡⁤敓瑴牥映牯猠慴瑲楔敭਍††慤整楴敭朠瑥瑓牡呴浩⡥ ⁻敲畴湲猠慴瑲楔敭※ൽ †瘠楯⁤敳却慴瑲楔敭搨瑡瑥浩⁥慶畬⥥笠猠慴瑲楔敭㴠瘠污敵※ൽഊ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲湥呤浩൥ †搠瑡瑥浩⁥敧䕴摮楔敭⤨笠爠瑥牵⁮湥呤浩㭥素਍††潶摩猠瑥湅呤浩⡥慤整楴敭瘠污敵 ⁻湥呤浩⁥‽慶畬㭥素਍਍††⼯䜠瑥整⁲湡⁤敓瑴牥映牯爠呥祲潃湵൴ †椠瑮朠瑥敒牔䍹畯瑮⤨笠爠瑥牵⁮敲牔䍹畯瑮※ൽ †瘠楯⁤敳剴呥祲潃湵⡴ ⁻桴獩爮呥祲潃湵⭴㬫素ഠ †ഠ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲牥潲䍲摯൥ †椠瑮朠瑥牅潲䍲摯⡥ ⁻敲畴湲攠牲牯潃敤※ൽ †瘠楯⁤敳䕴牲牯潃敤椨瑮瘠污敵 ⁻桴獩攮牲牯潃敤瘽污敵※⁽††਍਍††⼯䜠瑥整⁲湡⁤敓瑴牥映牯琠捩敫൴ †甠潬杮朠瑥楔正瑥⤨笠爠瑥牵⁮楴正瑥※ൽ †瘠楯⁤敳呴捩敫⡴汵湯⁧慶畬⥥笠琠捩敫⁴‽慶畬㭥素਍਍††⼯䜠瑥整⁲湡⁤敓瑴牥映牯漠数偮楲散਍††潤扵敬朠瑥灏湥牐捩⡥ ⁻敲畴湲漠数偮楲散※ൽ †瘠楯⁤敳佴数偮楲散搨畯汢⁥慶畬⥥笠漠数偮楲散㴠瘠污敵※ൽഊ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲灴楌敮਍††潤扵敬朠瑥灔楌敮⤨笠爠瑥牵⁮灴楌敮※ൽ †瘠楯⁤敳呴䱰湩⡥潤扵敬瘠污敵 ⁻灴楌敮㴠瘠污敵※ൽഊ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲汳楌敮਍††潤扵敬朠瑥汓楌敮⤨笠爠瑥牵⁮汳楌敮※ൽ †瘠楯⁤敳却䱬湩⡥潤扵敬瘠污敵 ⁻汳楌敮㴠瘠污敵※ൽഊ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲潬൴ †搠畯汢⁥敧䥴楮䱴瑯⤨笠爠瑥牵⁮湩瑩潌㭴素਍††潶摩猠瑥湉瑩潌⡴潤扵敬瘠污敵 ⁻湩瑩潌⁴‽慶畬㭥素਍††਍††⼯䜠瑥整⁲湡⁤敓瑴牥映牯氠瑯਍††潤扵敬朠瑥潌⡴ ⁻敲畴湲氠瑯※ൽ †瘠楯⁤敳䱴瑯搨畯汢⁥慶畬⥥笠氠瑯㴠瘠污敵※⁽ഠഊ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲牰瑯捥⁴潬൴ †搠畯汢⁥敧側潲整瑣潬⡴ ⁻敲畴湲瀠潲整瑣潬㭴素਍††潶摩猠瑥牐瑯捥汴瑯搨畯汢⁥慶畬⥥笠瀠潲整瑣潬⁴‽慶畬㭥素†਍਍††⼯䜠瑥整⁲湡⁤敓瑴牥映牯瀠潲楦൴ †搠畯汢⁥敧側潲楦⡴ ⁻敲畴湲瀠潲楦㭴素਍††潶摩猠瑥牐景瑩搨畯汢⁥慶畬⥥笠瀠潲楦⁴‽慶畬㭥素†਍††਍††⼯䜠瑥整⁲湡⁤敓瑴牥映牯挠牵敲据⁹牰景瑩਍††潤扵敬朠瑥牐景瑩畃牲湥祣⤨笠爠瑥牵⁮牰景瑩畃牲湥祣※ൽ †瘠楯⁤敳側潲楦䍴牵敲据⡹潤扵敬瘠污敵 ⁻牰景瑩畃牲湥祣㴠瘠污敵※⁽††ഠ †ഠ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲睳灡਍††潤扵敬†敧却慷⡰笩敲畴湲琠楨⹳睳灡紻††††††ഠ †瘠楯⁤†猠瑥睓灡搨畯汢⁥慶畬⥥瑻楨⹳睳灡瘽污敵紻††††††ഠ ††਍††⼯䜠瑥整⁲湡⁤敓瑴牥映牯猠牰慥൤ †搠畯汢⁥朠瑥灓敲摡⤨牻瑥牵⁮桴獩献牰慥㭤⁽††††††਍††潶摩††敳却牰慥⡤湩⁴慶畬⥥瑻楨⹳灳敲摡瘽污敵紻††††††ഠ †ഠ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲慭楧ൣ †甠潬杮朠瑥慍楧⡣ ⁻敲畴湲洠条捩※ൽ †瘠楯⁤敳䵴条捩用潬杮瘠污敵 ⁻慭楧⁣‽慶畬㭥素਍਍††⼯䜠瑥整⁲湡⁤敓瑴牥映牯挠浯敭瑮਍††瑳楲杮朠瑥潃浭湥⡴ ⁻敲畴湲挠浯敭瑮※ൽ †瘠楯⁤敳䍴浯敭瑮猨牴湩⁧慶畬⥥笠挠浯敭瑮㴠瘠污敵※⁽ഠ †ഠ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲祳扭汯瀠楯瑮਍††潤扵敬朠瑥潐湩⡴ ⁻敲畴湲瀠楯瑮※ൽ †瘠楯⁤敳側楯瑮搨畯汢⁥慶畬⥥笠瀠楯瑮㴠瘠污敵※ൽ †ഠ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲捡楴湯映慬൧ †猠牴湩⁧敧䅴瑣潩䙮杬⤨牻瑥牵⁮捡楴湯汆㭧ൽ †瘠楯⁤敳䅴瑣潩䙮杬猨牴湩⁧慶畬⥥笠愠瑣潩䙮杬㴠瘠污敵※ൽ †ഠ †⼠ 敇瑴牥愠摮匠瑥整⁲潦⁲敨杤䱥捯⁫汦条਍††潢汯朠瑥效杤䱥捯⡫笩敲畴湲栠摥敧潌正紻਍††潶摩猠瑥效杤䱥捯⡫潢汯瘠污敵 ⁻敨杤䱥捯⁫‽慶畬㭥素††਍†††ഠ紊഻ഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†汣獡⁳潣獮牴捵潴⁲†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍佃摲牥㨺佃摲牥⤨ൻ †桴獩琮捩敫㵴㬰਍†琠楨⹳汣慥䙲杬昽污敳഻ †桴獩攮牲牯潃敤〽഻ †桴獩瀮潲楦㵴㬰਍†琠楨⹳牰景瑩畃牲湥祣〽഻ †桴獩琮慲敤瑓瑡獵吽䅒䕄卟䅔啔当剔䑁彅䕐䑎义㭇਍†琠楨⹳敨杤䱥捯㵫慦獬㭥਍ൽ䌊牏敤㩲縺佃摲牥⤨絻
+//+------------------------------------------------------------------+
+//|                                                    TradeLine.mqh |
+//|                                  Copyright 2024, RkeeCom Ltd.    |
+//|                                             
+//+------------------------------------------------------------------+
+
+
+#include <Object.mqh>
+#include "..\..\..\header\CDefine.mqh"
+
+class COrder : public CObject
+  {
+   private:
+
+   //+------------------------------------------------------------------+
+   //|  symbol param   
+   //+------------------------------------------------------------------+      
+      int                symbolIndex;
+      string             symbol;
+      ENUM_ORDER_TYPE    orderType;      
+   //+------------------------------------------------------------------+    
+
+   //+------------------------------------------------------------------+
+   //|  trade control param
+   //+------------------------------------------------------------------+  
+      int tradeStatus;
+      int tradeType;
+      
+      // test begin
+      bool dealFlg;
+      bool clearFlg;
+      string actionFlg;
+      // test end
+
+   //+------------------------------------------------------------------+
+   
+   //+------------------------------------------------------------------+
+   //|  order control param
+   //+------------------------------------------------------------------+  
+      int   modelKind;        //model kind
+      ulong   modelId;          //model id (getUniqueInt())
+      int   orderIndex;       //order index or order status
+      datetime startTime;     //startTime
+      datetime endTime;       //endTime
+      int      reTryCount;    // retry count when error happen
+      int      errorCode;     // trade error code
+   //+------------------------------------------------------------------+                         
+
+   //+------------------------------------------------------------------+
+   //|  market info   
+   //+------------------------------------------------------------------+   
+      ulong   ticket;         //ticket
+      double  openPrice;      //open price
+      double  tpLine;         //tpLine
+      double  slLine;         //slLine
+      double  initLot;        //init lot
+      double  lot;            //lot
+      double  protectlot;     //risk protect lot
+      double  profit;         //pips profit
+      double  profitCurrency;         //money profit
+      double  swap;             //swap
+      int     spread;           //spread
+      ulong   magic;          //magic
+      string  comment;        //comment
+   //+------------------------------------------------------------------+ 
+   
+   //+------------------------------------------------------------------+
+   //|  symbol perperties
+   //+------------------------------------------------------------------+   
+      double  point;            //symbol point
+      
+   //+------------------------------------------------------------------+
+   //|  hedge perperties
+   //+------------------------------------------------------------------+   
+      bool    hedgeLock;
+      
+       
+   public:      
+      COrder();
+     ~COrder();      
+     
+     //test begin
+     // Getter and Setter for deal flag
+    bool getDealFlg() { return dealFlg; }
+    void setDealFlg(bool value) { dealFlg = value; } 
+    
+    bool getClearFlg() { return clearFlg; }
+    void setClearFlg(bool value) { clearFlg = value; }     
+             
+     //test end
+             
+     // Getter and Setter for symbol
+    string getSymbol() { return symbol; }
+    void setSymbol(string value) { symbol = value; }
+
+     // Getter and Setter for symbol index
+    int getSymbolIndex() { return symbolIndex; }
+    void setSymbolIndex(int value) { symbolIndex = value; }
+
+    // Getter and Setter for orderType
+    ENUM_ORDER_TYPE getOrderType() { return orderType; }
+    void setOrderType(ENUM_ORDER_TYPE value) { orderType = value; }
+
+    // Getter and Setter for tradeStatus
+    int getTradeStatus() { return tradeStatus; }
+    void setTradeStatus(int value) { tradeStatus = value; }
+    
+    // Getter and Setter for tradeType
+    int getTradeType() { return tradeType; }
+    void setTradeType(int value) { tradeType = value; }    
+
+    // Getter and Setter for modelKind
+    int getModelKind() { return modelKind; }
+    void setModelKind(int value) { modelKind = value; }
+
+    // Getter and Setter for modelId
+    ulong getModelId() { return modelId; }
+    void setModelId(ulong value) { modelId = value; }
+
+    // Getter and Setter for orderIndex
+    int getOrderIndex() { return orderIndex; }
+    void setOrderIndex(int value) { orderIndex = value; }
+
+    // Getter and Setter for startTime
+    datetime getStartTime() { return startTime; }
+    void setStartTime(datetime value) { startTime = value; }
+
+    // Getter and Setter for endTime
+    datetime getEndTime() { return endTime; }
+    void setEndTime(datetime value) { endTime = value; }
+
+    // Getter and Setter for reTryCount
+    int getReTryCount() { return reTryCount; }
+    void setReTryCount() { this.reTryCount++; } 
+    
+    // Getter and Setter for errorCode
+    int getErrorCode() { return errorCode; }
+    void setErrorCode(int value) { this.errorCode=value; }     
+
+    // Getter and Setter for ticket
+    ulong getTicket() { return ticket; }
+    void setTicket(ulong value) { ticket = value; }
+
+    // Getter and Setter for openPrice
+    double getOpenPrice() { return openPrice; }
+    void setOpenPrice(double value) { openPrice = value; }
+
+    // Getter and Setter for tpLine
+    double getTpLine() { return tpLine; }
+    void setTpLine(double value) { tpLine = value; }
+
+    // Getter and Setter for slLine
+    double getSlLine() { return slLine; }
+    void setSlLine(double value) { slLine = value; }
+
+    // Getter and Setter for lot
+    double getInitLot() { return initLot; }
+    void setInitLot(double value) { initLot = value; }
+    
+    // Getter and Setter for lot
+    double getLot() { return lot; }
+    void setLot(double value) { lot = value; }  
+
+    // Getter and Setter for protect lot
+    double getProtectlot() { return protectlot; }
+    void setProtectlot(double value) { protectlot = value; }  
+
+    // Getter and Setter for profit
+    double getProfit() { return profit; }
+    void setProfit(double value) { profit = value; }  
+    
+    // Getter and Setter for currency profit
+    double getProfitCurrency() { return profitCurrency; }
+    void setProfitCurrency(double value) { profitCurrency = value; }      
+    
+    // Getter and Setter for swap
+    double  getSwap(){return this.swap;}             
+    void    setSwap(double value){this.swap=value;}             
+     
+    // Getter and Setter for spread
+    double  getSpread(){return this.spread;}             
+    void    setSpread(int value){this.spread=value;}             
+    
+    // Getter and Setter for magic
+    ulong getMagic() { return magic; }
+    void setMagic(ulong value) { magic = value; }
+
+    // Getter and Setter for comment
+    string getComment() { return comment; }
+    void setComment(string value) { comment = value; }  
+    
+    // Getter and Setter for symbol point
+    double getPoint() { return point; }
+    void setPoint(double value) { point = value; }
+    
+    // Getter and Setter for action flag
+    string getActionFlg(){return actionFlg;}
+    void setActionFlg(string value) { actionFlg = value; }
+    
+    // Getter and Setter for hedgeLock flag
+    bool getHedgeLock(){return hedgeLock;}
+    void setHedgeLock(bool value) { hedgeLock = value; }    
+       
+};
+
+//+------------------------------------------------------------------+
+//|  class constructor   
+//+------------------------------------------------------------------+
+COrder::COrder(){
+   this.ticket=0;
+   this.clearFlg=false;
+   this.errorCode=0;
+   this.profit=0;
+   this.profitCurrency=0;
+   this.tradeStatus=TRADE_STATUS_TRADE_PENDING;
+   this.hedgeLock=false;
+}
+COrder::~COrder(){}

@@ -1,1 +1,13 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼††††††††††††††††††††††††††䌠效摡牥洮桱簠਍⼯⁼††††††††††††††††††††††††††††歲敥爮歫簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍਍湩異⁴猠牴湩⁧䘠䱉䕔归䱃䅅归䕓呔义㉇∽ⴭⴭⴭ湩楤慣潴⁲楦瑬牥洠摯汥挠敬牡ⴠⴭⴭ∭഻ഊ椊灮瑵†潢汯††則䑉䍟䕌剁䙟䝌琽畲㭥਍湩異⁴戠潯⁬†䜠䥒彄䱃䅅归剂䅅㵋牴敵഻椊灮瑵†潤扵敬†則䑉䍟䕌剁䉟䕒䭁䑟䙉彆䥐卐㌽〰഻椊灮瑵†潢汯††則䑉䍟䕌剁剟乁䕇琽畲㭥਍湩異⁴搠畯汢⁥䜠䥒彄䱃䅅归䅒䝎彅䥄䙆偟偉㵓〳㬰਍⼯湩異⁴猠牴湩⁧䜠䥒彄䱃䅅归䡃彌䑅䕇䥟䑎塅㵓〢ㄬ㈬㌬㐬㔬㘬㬢਍
+//+------------------------------------------------------------------+
+//|                                                      CHeader.mqh |
+//|                                                         rkee.rkk |
+//+------------------------------------------------------------------+
+
+input  string  FILTER_CLEAR_SETTING2="------indicator filter model clear ------";
+
+input  bool    GRID_CLEAR_FLG=true;
+input  bool    GRID_CLEAR_BREAK=true;
+input  double  GRID_CLEAR_BREAK_DIFF_PIPS=300;
+input  bool    GRID_CLEAR_RANGE=true;
+input  double  GRID_CLEAR_RANGE_DIFF_PIPS=300;
+//input  string  GRID_CLEAR_CHL_EDGE_INDEXS="0,1,2,3,4,5,6";

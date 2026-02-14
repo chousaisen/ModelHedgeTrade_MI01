@@ -1,1 +1,30 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼††††††††††††††††††††††††††䌠效摡牥洮桱簠਍⼯⁼††††††††††††††††††††††††††††歲敥爮歫簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍਍湩異⁴猠牴湩⁧䘠䱉䕔归䱃协彅䕓呔义㵇ⴢⴭⴭ‭楦瑬牥挠潬敳洠摯汥ⴠⴭⴭ∭഻ഊ椊灮瑵†潢汯††則䑉䍟佌䕓䡟䑅䕇昽污敳഻⼊椯灮瑵†潢汯††則䑉䍟佌䕓䡟䑅䕇㴲慦獬㭥਍湩異⁴戠潯⁬†䜠䥒彄䱃协彅乁䱁卙卉剟䙅䕒䡓昽污敳഻椊灮瑵†湩⁴††則䑉䍟佌䕓䡟䑅䕇䵟义佟䑒剅㌽഻⼊椯灮瑵†潤扵敬†則䑉䍟佌䕓䡟䑅䕇䉟䝅义䑟䙉彆䅒䕔〽ㄮ഻⼊椯灮瑵†潤扵敬†則䑉䍟佌䕓䡟䑅䕇䕟䑎䑟䙉彆䅒䕔〽㌮഻⼊椯灮瑵†潤扵敬†則䑉䍟佌䕓䡟䑅䕇䉟䝅义䡟䑅䕇剟呁㵅㬱਍⼯湩異⁴搠畯汢⁥䜠䥒彄䱃协彅䕈䝄彅久彄䕈䝄彅䅒䕔〽഻椊灮瑵†潤扵敬†則䑉䍟佌䕓呟䕒䑎䱟卅当䥐卐ㄽ〰഻椊灮瑵†湩⁴††則䑉䍟佌䕓呟䕒䑎䵟䑏䱅䵟义佟䑒剅㌽഻ഊ椊灮瑵†潢汯††則䑉䍟佌䕓䕟䍘䕅彄啊偍琽畲㭥਍湩異⁴搠畯汢⁥䜠䥒彄䱃协彅塅䕃䑅䩟䵕彐䥍彎䥐卐㌽〰഻椊灮瑵†潢汯††則䑉䍟佌䕓䕟䍘䕅彄啃归啊偍昽污敳഻椊灮瑵†潤扵敬†則䑉䍟佌䕓䕟䍘䕅彄啊偍䍟剕䵟义偟偉㵓〱㬰਍਍湩異⁴搠畯汢⁥䜠䥒彄䱃协彅䥍彎䥒䭓䕟䍘䕅彄剐䙏呉〽഻椊灮瑵†潤扵敬†則䑉䍟佌䕓䵟塁剟卉彋塅䕃䑅偟佒䥆㵔㤭〰㬰਍湩異⁴搠畯汢⁥䜠䥒彄䱃协彅䥍彎䥒䭓䡟䑅䕇剟呁㵅㬰਍湩異⁴搠畯汢⁥䜠䥒彄䱃协彅䅍彘䥒䭓䡟䑅䕇剟呁㵅㬱਍湩異⁴搠畯汢⁥䜠䥒彄䱃协彅䥒䭓䡟䑅䕇䝟佒彗䅒䕔ㄽ഻椊灮瑵†潢汯††則䑉䍟佌䕓䉟䕒䭁偟佒䕔呃䡟䑅䕇琽畲㭥਍湩異⁴搠畯汢⁥䜠䥒彄䱃协彅剂䅅彋剐呏䍅彔䕈䝄彅䅒䕔ㄽ�
+//+------------------------------------------------------------------+
+//|                                                      CHeader.mqh |
+//|                                                         rkee.rkk |
+//+------------------------------------------------------------------+
+
+input  string  FILTER_CLOSE_SETTING="------ filter close model ------";
+
+input  bool    GRID_CLOSE_HEDGE=false;
+//input  bool    GRID_CLOSE_HEDGE2=false;
+input  bool    GRID_CLOSE_ANALYSIS_REFRESH=false;
+input  int     GRID_CLOSE_HEDGE_MIN_ORDER=3;
+//input  double  GRID_CLOSE_HEDGE_BEGIN_DIFF_RATE=0.1;
+//input  double  GRID_CLOSE_HEDGE_END_DIFF_RATE=0.3;
+//input  double  GRID_CLOSE_HEDGE_BEGIN_HEDGE_RATE=1;
+//input  double  GRID_CLOSE_HEDGE_END_HEDGE_RATE=0;
+input  double  GRID_CLOSE_TREND_LESS_PIPS=100;
+input  int     GRID_CLOSE_TREND_MODEL_MIN_ORDER=3;
+
+input  bool    GRID_CLOSE_EXCEED_JUMP=true;
+input  double  GRID_CLOSE_EXCEED_JUMP_MIN_PIPS=300;
+input  bool    GRID_CLOSE_EXCEED_CUR_JUMP=false;
+input  double  GRID_CLOSE_EXCEED_JUMP_CUR_MIN_PIPS=100;
+
+input  double  GRID_CLOSE_MIN_RISK_EXCEED_PROFIT=0;
+input  double  GRID_CLOSE_MAX_RISK_EXCEED_PROFIT=-9000;
+input  double  GRID_CLOSE_MIN_RISK_HEDGE_RATE=0;
+input  double  GRID_CLOSE_MAX_RISK_HEDGE_RATE=1;
+input  double  GRID_CLOSE_RISK_HEDGE_GROW_RATE=1;
+input  bool    GRID_CLOSE_BREAK_PROTECT_HEDGE=true;
+input  double  GRID_CLOSE_BREAK_PROTECT_HEDGE_RATE=1;

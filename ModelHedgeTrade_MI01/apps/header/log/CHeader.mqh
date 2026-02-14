@@ -1,1 +1,32 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼††††††††††††††††††††††††††䌠效摡牥洮桱簠਍⼯⁼††††††††††††††††††††††††††††歲敥爮歫簠਍⼯⁼††††††††††††††††††††††††††††††††簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍਍湩異⁴猠牴湩⁧†佌彇乁彄䕄啂彇䕓呔义㵇ⴢⴭⴭ‭潌⁧湡⁤敄畢⁧敳瑴湩⁧ⴭⴭⴭ㬢਍਍湩異⁴猠牴湩⁧††䰠杯䉟来湩呟浩㵥∢഻椊灮瑵†瑳楲杮†††潌彧湅彤楔敭∽㬢਍湩異⁴椠瑮††††䰠杯䑟晩彦敓潣摮㵳〶㬰਍湩異⁴椠瑮††††䰠杯卟潨彷牏敤獲偟獡敳彤潈牵㵳㘳〰※†਍湩異⁴猠牴湩⁧††䰠杯䙟汩彥慎敭∽畒湮牥〱㬢†਍湩異⁴湩⁴††††䰠杯佟瑵畐彴潃湵㵴〱〰഻ഊ椊灮瑵†潢汯††††敄畢㵧牴敵഻椊灮瑵†湩⁴††††敄畢彧楄晦卟捥湯獤ㄽ഻椊灮瑵†湩⁴††††敄畢彧楄晦䉟歲卟捥湯獤ㄽ഻椊灮瑵†瑳楲杮†††敄畢䙧汩㵥搢扥杵㄰㬢਍湩異⁴猠牴湩⁧††䐠扥杵䉟来湩呟浩㵥∢഻椊灮瑵†瑳楲杮†††敄畢彧湅彤楔敭∽㬢਍湩異⁴戠潯⁬†††䐠扥杵佟数㵮牴敵഻椊灮瑵†潢汯††††敄畢彧硅整摮琽畲㭥਍湩異⁴戠潯⁬†††䐠扥杵䍟潬敳琽畲㭥਍湩異⁴戠潯⁬†††䐠扥杵䍟敬牡琽畲㭥਍湩異⁴戠潯⁬†††䐠扥杵䍟敬牡偟畬㵳牴敵഻椊灮瑵†潢汯††††敄畢彧汃慥彲楍畮㵳牴敵഻椊灮瑵†潢汯††††敄畢彧汃慥彲硅散摥琽畲㭥਍湩異⁴戠潯⁬†††䐠扥杵䍟敬牡偟敲硅散摥琽畲㭥਍湩異⁴戠潯⁬†††䐠扥杵䍟敬牡佟敶㵲牴敵഻椊灮瑵猠牴湩⁧†††敄畢彧敒畒彮楔敭∽〲㤲㔰㄰ㄠ〰∰഻ഊ�
+//+------------------------------------------------------------------+
+//|                                                      CHeader.mqh |
+//|                                                         rkee.rkk |
+//|                                                                  |
+//+------------------------------------------------------------------+
+
+input  string   LOG_AND_DEBUG_SETTING="------ Log and Debug setting ------";
+
+input  string      Log_Begin_Time="";
+input  string      Log_End_Time="";
+input  int         Log_Diff_Seconds=600;
+input  int         Log_Show_Orders_Passed_Hours=3600;   
+input  string      Log_File_Name="Runner10";  
+input int          Log_OutPut_Count=1000;
+
+input  bool        Debug=true;
+input  int         Debug_Diff_Seconds=1;
+input  int         Debug_Diff_Brk_Seconds=1;
+input  string      DebugFile="debug01";
+input  string      Debug_Begin_Time="";
+input  string      Debug_End_Time="";
+input  bool        Debug_Open=true;
+input  bool        Debug_Extend=true;
+input  bool        Debug_Close=true;
+input  bool        Debug_Clear=true;
+input  bool        Debug_Clear_Plus=true;
+input  bool        Debug_Clear_Minus=true;
+input  bool        Debug_Clear_Exceed=true;
+input  bool        Debug_Clear_PreExceed=true;
+input  bool        Debug_Clear_Over=true;
+input string       Debug_ReRun_Time="20290501 1000";
+

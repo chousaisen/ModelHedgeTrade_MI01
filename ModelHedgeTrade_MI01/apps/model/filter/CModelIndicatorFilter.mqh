@@ -1,1 +1,76 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼††††††††††††††††††††††††䵃摯汥湉楤慣潴䙲汩整⹲煭⁨ർ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⌊牰灯牥祴挠灯特杩瑨∠ഢ⌊牰灯牥祴氠湩⁫††∠瑨灴㩳⼯睷⹷煭㕬挮浯ഢ⌊牰灯牥祴瘠牥楳湯†∠⸱〰ഢഊ⌊湩汣摵⁥䜼湥牥捩䅜牲祡楌瑳洮桱ാഊ⌊湩汣摵⁥䌢潍敤䙬汩整⹲煭≨਍਍汣獡⁳䵃摯汥湉楤慣潴䙲汩整⁲›異汢捩䌠潍敤䙬汩整൲笊਍†††牰癩瑡㩥਍††††䌠桓牡䍥汴‪†††††猠慨敲瑃㭬਍†††異汢捩ഺ †††††††††䌠潍敤䥬摮捩瑡牯楆瑬牥⤨഻ †††††††††縠䵃摯汥湉楤慣潴䙲汩整⡲㬩ഠ ††††††††††††ഠ ††††††⼠⴯ⴭ攠杤⁥牢慥⁫整摮†ഠ ††††††戠潯⁬†攠杤䉥敲歡敔摮椨瑮猠浹潢䥬摮硥ബ †††††††††††††††††䔠啎彍剏䕄归奔䕐琠灹ⱥ਍††††††††††††††††††湩⁴档䥬摮硥ബ †††††††††††††††††搠畯汢⁥慭䕸杤剥瑡ⱥ਍††††††††††††††††††潤扵敬氠浩瑩牂慥偫灩⥳※਍††††††††††††††††††਍†††††††⼯ⴭ‭摥敧戠敲歡爠癥牥敳†ഠ ††††††戠潯⁬†攠杤䉥敲歡敒敶獲⡥湩⁴祳扭汯湉敤ⱸ਍††††††††††††††††††久䵕佟䑒剅呟偙⁅祴数ബ †††††††††††††††††椠瑮挠汨湉敤ⱸ਍††††††††††††††††††潤扵敬洠硡摅敧慒整ബ †††††††††††††††††搠畯汢⁥楬業䉴敲歡楐獰㬩††††††††††††††††††††††††††††††††††਍††††††††††ഠ紊഻ ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†番杤⁥晩攠杤⁥牢慥⁫整摮਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潢汯†䵃摯汥湉楤慣潴䙲汩整㩲攺杤䉥敲歡敔摮椨瑮猠浹潢䥬摮硥ബ ††††††††††††††††††††††久䵕佟䑒剅呟偙⁅祴数ബ ††††††††††††††††††††††湩⁴档䥬摮硥ബ ††††††††††††††††††††††潤扵敬洠硡摅敧慒整ബ ††††††††††††††††††††††潤扵敬氠浩瑩牂慥偫灩⥳ൻ †਍†䌠牐捩䍥汨瑓瑡獵‪瀠楲散桃卬慴畴㵳桴獩朮瑥湉卤慨敲⤨朮瑥牐捩䍥慨湮汥瑓瑡獵⠲祳扭汯湉敤⥸഻ †潤扵敬攠杤剥瑡㵥牰捩䍥汨瑓瑡獵朮瑥摅敧慒整挨汨湉敤ⱸ⤰഻ †晩䴨瑡䅨獢攨杤剥瑡⥥洼硡摅敧慒整爩瑥牵⁮牴敵഻ †晩琨灹㵥伽䑒剅呟偙彅啂⥙ൻ †††晩瀨楲散桃卬慴畴⹳敧䕴杤䉥歲楄晦楐獰挨汨湉敤⥸ⴼ楬業䉴敲歡楐獰笩਍††††爠瑥牵⁮慦獬㭥਍†††素਍†素汥敳ൻ ††椠⡦牰捩䍥汨瑓瑡獵朮瑥摅敧牂䑫晩偦灩⡳档䥬摮硥㸩楬業䉴敲歡楐獰笩਍††††爠瑥牵⁮慦獬㭥†ഠ ††素†ഠ †⁽਍†爠瑥牵⁮牴敵※†਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†番杤⁥晩攠杤⁥牢慥⁫敲敶獲൥⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ戊潯⁬䌠潍敤䥬摮捩瑡牯楆瑬牥㨺摥敧牂慥剫癥牥敳椨瑮猠浹潢䥬摮硥ബ ††††††††††††††††††††††久䵕佟䑒剅呟偙⁅祴数ബ ††††††††††††††††††††††湩⁴档䥬摮硥ബ ††††††††††††††††††††††潤扵敬洠硡摅敧慒整ബ ††††††††††††††††††††††潤扵敬氠浩瑩牂慥偫灩⥳⁻†਍†爠瑥牵⁮牴敵※†਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†汣獡⁳潣獮牴捵潴⁲†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䵃摯汥湉楤慣潴䙲汩整㩲䌺潍敤䥬摮捩瑡牯楆瑬牥⤨絻਍䵃摯汥湉楤慣潴䙲汩整㩲縺䵃摯汥湉楤慣潴䙲汩整⡲笩਍�
+//+------------------------------------------------------------------+
+//|                                                 CModelIndicatorFilter.mqh |
+//+------------------------------------------------------------------+
+#property copyright ""
+#property link      "https://www.mql5.com"
+#property version   "1.00"
+
+#include <Generic\ArrayList.mqh>
+
+#include "CModelFilter.mqh"
+
+class CModelIndicatorFilter : public CModelFilter
+{
+      private:
+         CShareCtl*            shareCtl;
+      public:
+                    CModelIndicatorFilter();
+                    ~CModelIndicatorFilter(); 
+                          
+              //--- edge break tend   
+              bool    edgeBreakTend(int symbolIndex,
+                                    ENUM_ORDER_TYPE type,
+                                    int chlIndex,
+                                    double maxEdgeRate,
+                                    double limitBreakPips); 
+                                    
+              //--- edge break reverse   
+              bool    edgeBreakReverse(int symbolIndex,
+                                    ENUM_ORDER_TYPE type,
+                                    int chlIndex,
+                                    double maxEdgeRate,
+                                    double limitBreakPips);                                                                    
+                     
+};
+  
+//+------------------------------------------------------------------+
+//|  judge if edge break tend
+//+------------------------------------------------------------------+
+bool  CModelIndicatorFilter::edgeBreakTend(int symbolIndex,
+                                             ENUM_ORDER_TYPE type,
+                                             int chlIndex,
+                                             double maxEdgeRate,
+                                             double limitBreakPips){
+   
+   CPriceChlStatus*  priceChlStatus=this.getIndShare().getPriceChannelStatus2(symbolIndex);
+   double edgeRate=priceChlStatus.getEdgeRate(chlIndex,0);
+   if(MathAbs(edgeRate)<maxEdgeRate)return true;
+   if(type==ORDER_TYPE_BUY){
+       if(priceChlStatus.getEdgeBrkDiffPips(chlIndex)<-limitBreakPips){
+         return false;
+       }
+   }else{
+      if(priceChlStatus.getEdgeBrkDiffPips(chlIndex)>limitBreakPips){
+         return false;   
+      }   
+   } 
+   return true;   
+}
+
+//+------------------------------------------------------------------+
+//|  judge if edge break reverse
+//+------------------------------------------------------------------+
+bool  CModelIndicatorFilter::edgeBreakReverse(int symbolIndex,
+                                             ENUM_ORDER_TYPE type,
+                                             int chlIndex,
+                                             double maxEdgeRate,
+                                             double limitBreakPips){   
+   return true;   
+}
+
+//+------------------------------------------------------------------+
+//|  class constructor   
+//+------------------------------------------------------------------+
+CModelIndicatorFilter::CModelIndicatorFilter(){}
+CModelIndicatorFilter::~CModelIndicatorFilter(){
+}

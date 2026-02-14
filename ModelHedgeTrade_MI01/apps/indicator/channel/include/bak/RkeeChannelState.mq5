@@ -1,1 +1,168 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼†††††††††††††††††††††††牔湥卤牴湥瑧䕨⹁煭‵ർ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⌊牰灯牥祴挠灯特杩瑨∠潃祰楲桧⁴〲〰㈭㈰ⰴ䴠瑥兡潵整⁳瑌⹤ഢ⌊牰灯牥祴氠湩⁫††∠瑨灴㩳⼯睷⹷煭㕬挮浯ഢ⼊⴯ⴭ鎾藥芏闦ධ 湩⁴†䤠灮敐楲摯孳⁝‽㍻‬ⰹㄠⰶ㌠ⰲ㘠紴※†⼠ 郥ꪸ釥龜਍⼯湩異⁴潤扵敬丠㴠ㄠ〰〮※†††††††††††††⼠ 鳦Ꞥ뛨뾊볥ꚺ਍搠畯汢⁥敗杩瑨孳⁝‽ㅻ〮‬⸰ⰸ〠㘮‬⸰紴※†⼠ 郥ꢑ鳦莝蟩ඍ椊灮瑵猠牴湩⁧牐捩䍥慨湮汥湉楤慣潴⁲‽倢楲散䍟慨湮汥≬※⼯螌ꃦ趐꟧ධ椊灮瑵搠畯汢⁥牔摡呥牨獥潨摬㴠㔠⸰㬰†††††††⼠ 뫤鎘飩벀볯鶻꿥벀ꓥ躺귦벀韦꾏胨醙뫤鎘볯ඉ⼊⴯ⴭꢅ뇥颏蟩ඏ搊畯汢⁥牔湥卤牴湥瑧⁨‽⸰㬰††††††††††††⼯讶諥몼뫥ඦ椊瑮䠠湡汤獥䅛牲祡楓敺䤨灮敐楲摯⥳㭝††††††††⼯鶿귥螌ꃦꖏ鿦඄搊畯汢⁥灕数䉲晵敦孲ⱝ䰠睯牥畂晦牥嵛※†††††††⼯鎼귥肜ꓥꢑ鳦蒚胩鎁胥඼ഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯䔠鶈꟥隌蟥낕††††††††††††††††††††††††††簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍湩⁴湏湉瑩⤨਍†ൻ †⼯鶈꟥隌倠楲散桃湡敮⁬賦螠迥蒟਍†映牯椨瑮椠㴠〠※⁩‼牁慲卹穩⡥湉偰牥潩獤㬩椠⬫ഩ ††ൻ ††䠠湡汤獥楛⁝‽䍩獵潴⡭卟浹潢ⱬ倠剅佉彄啃剒久ⱔ倠楲散桃湡敮䥬摮捩瑡牯‬湉偰牥潩獤楛⥝഻ ††椠⡦慈摮敬孳嵩㴠‽义䅖䥌彄䅈䑎䕌ഩ †††笠਍††††倠楲瑮潆浲瑡∨慆汩摥琠⁯牣慥整栠湡汤⁥潦⁲数楲摯┠⹤䔠牲牯›搥Ⱒ䤠灮敐楲摯孳嵩‬敇䱴獡䕴牲牯⤨㬩਍††††爠瑥牵⁮义呉䙟䥁䕌㭄਍††††ൽ ††ൽ †⼯뺮뷧鎼蛥몌룤뚗韩辺裥඗ †牁慲卹瑥獁敓楲獥唨灰牥畂晦牥‬牴敵㬩਍†䄠牲祡敓䅴即牥敩⡳潌敷䉲晵敦Ⱳ琠畲⥥഻ഊ †牐湩⡴吢敲摮瑓敲杮桴䔠⁁湩瑩慩楬敺⹤⤢഻ †敲畴湲䤠䥎彔啓䍃䕅䕄㭄਍†ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯辯룤咪捩蒚룤붇闦₰††††††††††††††††††††††††ർ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ瘊楯⁤湏楔正⤨਍†ൻ †⼯ꆮ껧讶諥몼뫥ඦ †牔湥卤牴湥瑧⁨‽慃捬汵瑡呥敲摮瑓敲杮桴⤨഻ഊ †⼯鎾蟥ꖗ뿥඗ †牐湩䙴牯慭⡴吢浩㩥┠ⱳ吠敲摮瑓敲杮桴›⸥昲Ⱒ吠浩呥卯牴湩⡧楔敭畃牲湥⡴Ⱙ吠䵉彅䅄䕔簠吠䵉彅䥍啎䕔⥓‬牔湥卤牴湥瑧⥨഻ഊ †⼯릠跦讶諥몼뫥鮿ꇨ꒺飦袼ꓧ设胩醾볯ඉ †晩䴨瑡䅨獢吨敲摮瑓敲杮桴 ‾牔摡呥牨獥潨摬ഩ ††ൻ ††椠⡦牔湥卤牴湥瑧⁨‾⤰਍††††传数呮慲敤伨䑒剅呟偙彅啂⥙഻ ††攠獬൥ ††††灏湥牔摡⡥剏䕄归奔䕐卟䱅⥌഻ ††ൽ 素਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼䅅軥鶈꟥隌蟥낕†††††††††††††††††††††††††簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩传䑮楥楮⡴潣獮⁴湩⁴敲獡湯ഩ 笠਍†⼠ 蟩뺔賦螠迥蒟਍†映牯椨瑮椠㴠〠※⁩‼牁慲卹穩⡥慈摮敬⥳※⭩⤫਍†††晩䠨湡汤獥楛⁝㴡䤠噎䱁䑉䡟乁䱄⥅਍††††䤠摮捩瑡牯敒敬獡⡥慈摮敬孳嵩㬩਍਍†倠楲瑮∨牔湥卤牴湥瑧⁨䅅搠楥楮楴污穩摥∮㬩਍†ൽഊ搊畯汢⁥慃捬汵瑡呥敲摮瑓敲杮桴⤨਍†ൻ †潤扵敬唠䅰楬湧敭瑮㴠〠഻〮 †潤扵敬䐠睯䅮楬湧敭瑮㴠〠഻〮 †਍†戠潯⁬†灵数䙲慬㵧牴敵഻ഊ †⼯랎迥肜ꓥꢑ鳦蒚胩鎁胥඼ †晩䌨灯䉹晵敦⡲慈摮敬孳牁慲卹穩⡥湉偰牥潩獤 ‭崱‬ⰰ〠‬ⰱ唠灰牥畂晦牥 㴼〠簠ർ ††䌠灯䉹晵敦⡲慈摮敬孳牁慲卹穩⡥湉偰牥潩獤 ‭崱‬ⰱ〠‬ⰱ䰠睯牥畂晦牥 㴼〠ഩ ††ൻ ††倠楲瑮∨慆汩摥琠⁯潣祰戠晵敦⁲潦⁲慭⁸数楲摯挠慨湮汥‮牅潲㩲∠‬敇䱴獡䕴牲牯⤨㬩਍†††敲畴湲〠഻〮 ††⁽†਍਍†搠畯汢⁥慭彸档湡敮彬灵数⁲‽灕数䉲晵敦孲崰഻ †潤扵敬洠硡损慨湮汥江睯牥㴠䰠睯牥畂晦牥せ㭝਍਍†瀠楲瑮⡦挢慨湮汥㐶畟灰牥∺⬠洠硡损慨湮汥畟灰牥⬠∠†挠慨湮汥㐶江睯牥∺⬠洠硡损慨湮汥江睯牥㬩਍਍†椠⡦慭彸档湡敮彬灵数⁲㴼洠硡损慨湮汥江睯牥笩਍†††牐湩⡴䤢癮污摩洠硡挠慨湮汥瘠污敵⹳唠灰牥㰠‽潌敷⹲⤢഻ ††爠瑥牵⁮⸰㬰਍†素਍਍†搠畯汢⁥敐楲摯灕数孲崱‬敐楲摯潌敷孲崱഻ †⼯躻볧늆賥궸軨随뷥趉釥龜髧骀臩벀਍†椠⡦潃祰畂晦牥䠨湡汤獥せⱝ〠‬ⰰㄠ‬敐楲摯灕数⥲㰠‽‰籼਍†††潃祰畂晦牥䠨湡汤獥せⱝㄠ‬ⰰㄠ‬敐楲摯潌敷⥲㰠‽⤰ൻ ††倠楲瑮潆浲瑡∨慆汩摥琠⁯潣祰戠晵敦⁲潦⁲数楲摯┠⹤䔠牲牯›搥Ⱒ䤠灮敐楲摯孳崰‬敇䱴獡䕴牲牯⤨㬩਍†††敲畴湲〠഻〮 †ൽ †਍†搠畯汢⁥敢楧啮灰牥摅敧慒整〽戬来湩潌敷䕲杤剥瑡㵥㬰਍†搠畯汢⁥敢楧彮档湡敮彬灵数⁲‽敐楲摯灕数孲崰഻ †潤扵敬戠来湩损慨湮汥江睯牥㴠倠牥潩䱤睯牥せ㭝਍†搠畯汢⁥敢楧彮档湡敮彬慲杮㵥敢楧彮档湡敮彬灵数⵲敢楧彮档湡敮彬潬敷㭲਍†搠畯汢⁥敢楧彮档湡敮彬灵敟杤彥楤晦洽硡损慨湮汥畟灰牥戭来湩损慨湮汥江睯牥഻ †潤扵敬戠来湩损慨湮汥江睯牥敟杤彥楤晦戽来湩损慨湮汥畟灰牥洭硡损慨湮汥江睯牥഻ †਍†椠⡦敢楧彮档湡敮彬灵敟杤彥楤晦〾笩†਍†††敢楧啮灰牥摅敧慒整戽来湩损慨湮汥牟湡敧戯来湩损慨湮汥畟彰摥敧摟晩㭦਍†††敢楧䱮睯牥摅敧慒整戽来湩损慨湮汥牟湡敧戯来湩损慨湮汥江睯牥敟杤彥楤晦഻ †ൽഊ †牰湩晴∨档湡敮彬敢楧彮灵数㩲•‫敢楧彮档湡敮彬灵数⁲਍††††††‫•†挠慨湮汥扟来湩江睯牥∺⬠戠来湩损慨湮汥江睯牥⤠഻ †††††ഠ †牰湩晴∨敢楧啮灰牥摅敧慒整∺⬠戠来湩灕数䕲杤剥瑡⁥਍††††††‫•†戠来湩潌敷䕲杤剥瑡㩥•‫敢楧䱮睯牥摅敧慒整⤠※†††††ഠഊ †晩戨来湩灕数䕲杤剥瑡㹥敢楧䱮睯牥摅敧慒整笩਍†††灵数䙲慬㵧牴敵഻ †敽獬筥਍†††灵数䙲慬㵧慦獬㭥਍†素†ഠഊ †潦⡲湩⁴⁰‽㬱瀠㰠䄠牲祡楓敺䤨灮敐楲摯⥳ⴠㄠ※⭰⤫⼠ 뿥ꖕ鳦Ꞥ釥龜㐶鳦ꮺ਍††笠਍†††潤扵敬眠楥桧⁴‽敗杩瑨孳嵰※††ഠഊ ††⼠ 믤鎼蛥몌룤랎迥鎽觥ꢑ鳦蒚胩鎁胥඼ ††椠⡦潃祰畂晦牥䠨湡汤獥灛ⱝ〠‬ⰰㄠ‬敐楲摯灕数⥲㰠‽‰籼਍††††䌠灯䉹晵敦⡲慈摮敬孳嵰‬ⰱ〠‬ⰱ倠牥潩䱤睯牥 㴼〠ഩ †††笠਍††††倠楲瑮潆浲瑡∨慆汩摥琠⁯潣祰戠晵敦⁲潦⁲数楲摯┠⹤䔠牲牯›搥Ⱒ䤠灮敐楲摯孳嵰‬敇䱴獡䕴牲牯⤨㬩਍††††挠湯楴畮㭥਍††††ൽഊ ††瀠楲瑮⡦挢慨湮汥•‫湉偰牥潩獤灛⁝‫弢灵数㩲•‫敐楲摯灕数孲崰ഠ †††††††‫挢慨湮汥•‫湉偰牥潩獤灛⁝‫弢潬敷㩲•‫敐楲摯潌敷孲崰⤠഻ഊ ††⼠ 뷥肸賥ꆮ껧ꂝ뿨誸뻨颼鋥许뻨颼髧뒴郥讨뫥ඦ ††搠畯汢⁥档湡敮彬楤瑳湡散㴠洠硡损慨湮汥畟灰牥ⴠ洠硡损慨湮汥江睯牥഻ ††搠畯汢⁥灵数彲慲楴⁯‽倨牥潩啤灰牥せ⁝‭慭彸档湡敮彬灵数⥲⼠挠慨湮汥摟獩慴据㭥⼠ ‰裥₰റ ††搠畯汢⁥潬敷彲慲楴⁯‽倨牥潩䱤睯牥せ⁝‭慭彸档湡敮彬潬敷⥲⼠挠慨湮汥摟獩慴据㭥⼠ ‰裥₰റഊ ††⼠ 鯦낖胦뒴郥ꚺ਍†††灕汁杩浮湥⁴㴫眠楥桧⁴‪灵数彲慲楴㭯਍†††潄湷汁杩浮湥⁴㴫眠楥桧⁴‪氨睯牥牟瑡潩ⴠㄠ〮㬩⼠ 뷨몸듨벀賨뒛਍††素਍਍†⼠ 껨鞮鳦袻髧₄⁎胥඼ †敲畴湲丠⨠⠠灕汁杩浮湥⁴‫潄湷汁杩浮湥⥴※⼯꺡뿤莌鯥몸ⴠ⁎裥₰ൎ 素਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼볥鎻蟥낕††††††††††††††††††††††††††††簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩传数呮慲敤椨瑮漠摲牥瑟灹⥥਍†ൻഊ 素਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍
+//+------------------------------------------------------------------+
+//|                                               TrendStrengthEA.mq5 |
+//+------------------------------------------------------------------+
+#property copyright "Copyright 2000-2024, MetaQuotes Ltd."
+#property link      "https://www.mql5.com"
+//--- 输入参数
+ int    InpPeriods[] = {3, 9, 16, 32, 64};    // 各个周期
+//input double N = 100.0;                            // 最大趋势强度
+ double Weights[] = {1.0, 0.8, 0.6, 0.4};    // 各周期权重
+input string PriceChannelIndicator = "Price_Channell"; // 指标名称
+input double TradeThreshold = 50.0;               // 交易阈值（绝对值大于此值时可考虑交易）
+//--- 全局变量
+double TrendStrength = 0.0;                        // 趋势强度
+int Handles[ArraySize(InpPeriods)];                // 保存指标句柄
+double UpperBuffer[], LowerBuffer[];               // 缓存最大周期的通道值
+
+//+------------------------------------------------------------------+
+//| EA初始化函数                                                     |
+//+------------------------------------------------------------------+
+int OnInit()
+  {
+   // 初始化 PriceChannel 指标句柄
+   for(int i = 0; i < ArraySize(InpPeriods); i++)
+     {
+      Handles[i] = iCustom(_Symbol, PERIOD_CURRENT, PriceChannelIndicator, InpPeriods[i]);
+      if(Handles[i] == INVALID_HANDLE)
+        {
+         PrintFormat("Failed to create handle for period %d. Error: %d", InpPeriods[i], GetLastError());
+         return INIT_FAILED;
+        }
+     }
+   // 设置缓冲区为时间序列
+   ArraySetAsSeries(UpperBuffer, true);
+   ArraySetAsSeries(LowerBuffer, true);
+
+   Print("TrendStrength EA initialized.");
+   return INIT_SUCCEEDED;
+  }
+
+//+------------------------------------------------------------------+
+//| 每个Tick的主函数                                                 |
+//+------------------------------------------------------------------+
+void OnTick()
+  {
+   // 计算趋势强度
+   TrendStrength = CalculateTrendStrength();
+
+   // 输出日志
+   PrintFormat("Time: %s, TrendStrength: %.2f", TimeToString(TimeCurrent(), TIME_DATE | TIME_MINUTES), TrendStrength);
+
+   // 根据趋势强度进行交易（示例逻辑）
+   if(MathAbs(TrendStrength) > TradeThreshold)
+     {
+      if(TrendStrength > 0)
+         OpenTrade(ORDER_TYPE_BUY);
+      else
+         OpenTrade(ORDER_TYPE_SELL);
+     }
+  }
+
+//+------------------------------------------------------------------+
+//| EA去初始化函数                                                   |
+//+------------------------------------------------------------------+
+void OnDeinit(const int reason)
+  {
+   // 释放指标句柄
+   for(int i = 0; i < ArraySize(Handles); i++)
+      if(Handles[i] != INVALID_HANDLE)
+         IndicatorRelease(Handles[i]);
+
+   Print("TrendStrength EA deinitialized.");
+  }
+
+double CalculateTrendStrength()
+  {
+   double UpAlignment = 0.0;
+   double DownAlignment = 0.0;
+   
+   bool   upperFlag=true;
+
+   // 获取最大周期的通道值
+   if(CopyBuffer(Handles[ArraySize(InpPeriods) - 1], 0, 0, 1, UpperBuffer) <= 0 ||
+      CopyBuffer(Handles[ArraySize(InpPeriods) - 1], 1, 0, 1, LowerBuffer) <= 0)
+     {
+      Print("Failed to copy buffer for max period channel. Error: ", GetLastError());
+      return 0.0;
+     }   
+
+   double max_channel_upper = UpperBuffer[0];
+   double max_channel_lower = LowerBuffer[0];
+
+   printf("channel64_upper:" + max_channel_upper + "   channel64_lower:" + max_channel_lower);
+
+   if(max_channel_upper <= max_channel_lower){
+      Print("Invalid max channel values. Upper <= Lower.");
+      return 0.0;
+   }
+
+   double PeriodUpper[1], PeriodLower[1];
+   // 从缓冲区中获取当前周期的通道值
+   if(CopyBuffer(Handles[0], 0, 0, 1, PeriodUpper) <= 0 ||
+      CopyBuffer(Handles[0], 1, 0, 1, PeriodLower) <= 0){
+      PrintFormat("Failed to copy buffer for period %d. Error: %d", InpPeriods[0], GetLastError());
+      return 0.0;
+   }
+   
+   double beginUpperEdgeRate=0,beginLowerEdgeRate=0;
+   double begin_channel_upper = PeriodUpper[0];
+   double begin_channel_lower = PeriodLower[0];
+   double begin_channel_range=begin_channel_upper-begin_channel_lower;
+   double begin_channel_up_edge_diff=max_channel_upper-begin_channel_lower;
+   double begin_channel_lower_edge_diff=begin_channel_upper-max_channel_lower;
+   
+   if(begin_channel_up_edge_diff>0){  
+      beginUpperEdgeRate=begin_channel_range/begin_channel_up_edge_diff;
+      beginLowerEdgeRate=begin_channel_range/begin_channel_lower_edge_diff;
+   }
+
+   printf("channel_begin_upper:" + begin_channel_upper 
+            + "    channel_begin_lower:" + begin_channel_lower );
+            
+   printf("beginUpperEdgeRate:" + beginUpperEdgeRate 
+            + "    beginLowerEdgeRate:" + beginLowerEdgeRate );            
+
+   if(beginUpperEdgeRate>beginLowerEdgeRate){
+      upperFlag=true;
+   }else{
+      upperFlag=false;
+   }   
+
+   for(int p = 1; p < ArraySize(InpPeriods) - 1; p++) // 忽略最大周期64本身
+     {
+      double weight = Weights[p];      
+
+      // 从缓冲区中获取当前周期的通道值
+      if(CopyBuffer(Handles[p], 0, 0, 1, PeriodUpper) <= 0 ||
+         CopyBuffer(Handles[p], 1, 0, 1, PeriodLower) <= 0)
+        {
+         PrintFormat("Failed to copy buffer for period %d. Error: %d", InpPeriods[p], GetLastError());
+         continue;
+        }
+
+      printf("channel" + InpPeriods[p] + "_upper:" + PeriodUpper[0] 
+               + "channel" + InpPeriods[p] + "_lower:" + PeriodLower[0] );
+
+      // 归一化计算靠近上边缘和下边缘的贴合程度
+      double channel_distance = max_channel_upper - max_channel_lower;
+      double upper_ratio = (PeriodUpper[0] - max_channel_upper) / channel_distance; // 0 到 1
+      double lower_ratio = (PeriodLower[0] - max_channel_lower) / channel_distance; // 0 到 1
+
+      // 更新总贴合度
+      UpAlignment += weight * upper_ratio;
+      DownAlignment += weight * (lower_ratio - 1.0); // 转为负值范围
+     }
+
+   // 计算最终的 N 值
+   return N * (UpAlignment + DownAlignment); // 确保范围为 -N 到 N
+  }
+
+//+------------------------------------------------------------------+
+//| 开仓函数                                                         |
+//+------------------------------------------------------------------+
+void OpenTrade(int order_type)
+  {
+
+  }
+
+//+------------------------------------------------------------------+

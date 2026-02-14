@@ -1,1 +1,260 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼†††††††††††††††††††††††††䌠潍敤䍬汴洮桱簠਍⼯⁼††††††††††††††††††††††††††††歲敥爮歫簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍瀣潲数瑲⁹潣祰楲桧⁴爢敫⹥歲≫਍਍椣据畬敤∠⸮ⸯ⼮⸮ⸯ⼮敨摡牥洯摯汥䌯效摡牥洮桱ഢ⌊湩汣摵⁥⸢⼮⸮ⸯ⼮⸮猯慨敲䌯桓牡䍥汴洮桱ഢ⌊湩汣摵⁥⸢⼮⸮ⸯ⼮䵃摯汥⹉煭≨਍椣据畬敤∠⸮ⸯ⼮⸮䌯潍敤剬湵敮⹲煭≨਍椣据畬敤∠䵃摯汥片摩㄰洮桱ഢഊ挊慬獳䌠潍敤䝬楲つ刱湵敮⁲›異汢捩䌠潍敤剬湵敮⁲਍†ൻ瀊楲慶整ഺ ††⼠术楲⁤敳⁴慰慲敭整൲ ††椠瑮†††††††朠楲䵤硡牏敤䍲畯瑮※†⼠猯瑥瀠牡浡瑥牥਍†††潤扵敬††††††牧摩楄瑳湡散嵛※†††⼯敳⁴慰慲敭整൲ ††搠畯汢⁥†††††朠楲偤潲楦孴㭝††††⼠猯瑥瀠牡浡瑥牥਍†††潤扵敬††††††牧摩瑓灯潌獳※††††⼯敳⁴慰慲敭整൲ ††搠畯汢⁥†††††瀠潲整瑣楐獰※††††⼠猯瑥瀠牡浡瑥牥਍†††潤扵敬††††††牰瑯捥䑴晩偦灩㭳†††⼯敳⁴慰慲敭整൲ ††搠畯汢⁥†††††朠楲䑤獩慴据䑥晩偦灩㭳⼠猯瑥瀠牡浡瑥牥਍異汢捩ഺ †††††††††††䌠潍敤䝬楲つ刱湵敮⡲㬩਍††††††††††††䍾潍敤䝬楲つ刱湵敮⡲㬩਍†††⼯ⴭ‭湩瑩†洠摯汥⁳桷湥椠楮⁴†††††††਍†††潶摩†††††††湩瑩潍敤獬⤨※†††††††††ഠ ††⼠⴯ⴭ爠湵洠摯汥爠湵敮൲ ††⼠瘯楯⁤†††††爠湵⤨※†਍†††⼯ⴭ‭敲潬摡†洠摯汥⁳桷湥椠楮൴ ††瘠楯⁤††††††爠䱥慯䵤摯汥⡳㬩਍†††⼯ⴭ‭灯湥挠湯楤楴湯⁳潴挠敲瑡⁥潭敤൬ ††戠潯⁬††††††漠数䍮湯楤楴湯䌨楓湧污‪楳湧污㬩਍†††⼯ⴭ‭牣慥整洠摯汥਍†††䵃摯汥⩉†††††牣慥整潍敤⡬㬩਍†††⼯ⴭ‭汣慥⁮潭敤獬眨敨⁮潭敤獬渠⁯牯敤獲ഩ ††椠瑮†††††††漠数䵮摯汥⡳㬩਍†††⼯ⴭ‭硥整摮爯湵洠摯汥氠獩൴ ††瘠楯⁤††††††攠瑸湥䵤摯汥⡳㬩ഠ ††⼠⴯ⴭ挠潬敳爯湵洠摯汥氠獩൴ ††瘠楯⁤††††††挠潬敳潍敤獬⤨※†††††ഠ ††⼠⴯ⴭ猠瑥瀠牡浡瑥牥൳ ††瘠楯⁤††††††猠瑥慐慲敭整獲椨瑮洠硡牏敤䍲畯瑮‬਍†††††††††††††††††††猠牴湩⁧楤瑳湡散楌瑳‬਍†††††††††††††††††††搠畯汢⁥牧摩楄瑳湡散楄晦楐獰ബ †††††††††††††††††††瑳楲杮瀠潲楦䱴獩ⱴഠ †††††††††††††††††††潤扵敬猠潴䱰獯ⱳഠ †††††††††††††††††††潤扵敬瀠潲整瑣‬਍†††††††††††††††††††搠畯汢⁥牰瑯捥䑴晩⥦※਍†††††††††††††††††††ഠ ††⼠⴯ⴭ猠瑥瀠牡浡瑥牥戠⁹畣瑳浯穩൥ ††瘠楯⁤††††††猠瑥片摩慍佸摲牥潃湵⡴湩⁴慶畬⥥഻ ††ഠ ††⼠⴯ⴭ樠摵敧椠⁦楤晦漠桴牥猠浹潢⁬潭敤獬਍†††⼯潢汯†††††搠晩佦桴牥祓扭汯潍敤獬椨瑮猠浹潢䥬摮硥䔬啎彍剏䕄归奔䕐琠灹⥥഻ †††††††††††††††††††††ഠ 素※†਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼氠慯⁤潭敤獬਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠潍敤䝬楲つ刱湵敮㩲椺楮䵴摯汥⡳潶摩ഩ笊†਍†琠楨⹳敲潌摡潍敤獬⤨഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼挠敲瑡⁥桴⁥潭敤ぬറ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊潍敤䥬‪䵃摯汥片摩㄰畒湮牥㨺牣慥整潍敤⡬ഩ笊††ഠ †䵃摯汥片摩㄰‪潭敤㵬敮⁷䵃摯汥片摩㄰⤨഻ †潭敤⹬敳側牡浡瑥牥⡳桴獩朮楲䵤硡牏敤䍲畯瑮ബ †††††††††††琠楨⹳牧摩楄瑳湡散ബ †††††††††††琠楨⹳牧摩牐景瑩ബ †††††††††††琠楨⹳牧摩瑓灯潌獳ബ †††††††††††琠楨⹳牰瑯捥側灩ⱳ਍††††††††††††桴獩瀮潲整瑣楄晦楐獰㬩਍†洠摯汥献瑥潍敤卬慴畴⡳位䕄彌呓呁单剟䅅奄㬩਍†爠瑥牵⁮潭敤㭬਍⁽਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼映汩整⁲潣摮瑩潩獮琠⁯牣慥整洠摯汥਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潢汯†䵃摯汥片摩㄰畒湮牥㨺灯湥潃摮瑩潩⡮千杩慮⩬猠杩慮⥬ൻ †††††ഠ ††⼠ 慰敲瑮挠湯楤楴湯൳ ††椠⡦䌡潍敤剬湵敮㩲漺数䙮汩整⡲楳湧污⤩敲畴湲映污敳഻ ††ഠ ††椠瑮††祳扭汯湉敤㵸楳湧污朮瑥祓扭汯湉敤⡸㬩਍†††久䵕佟䑒剅呟偙⁅祴数猽杩慮⹬敧呴慲敤祔数⤨഻ ††椠⡦祳扭汯湉敤㱸⤰敲畴湲映污敳※††ഠ ††ഠ ††⼠洯硡栠摥敧朠潲灵漠摲牥ഠ ††椠瑮挠牵潍敤䍬畯瑮琽楨⹳敧䵴摯汥潃湵⡴㬩†਍†††晩琨楨⹳敧䵴摯汥潃湵⡴㸩桴獩朮瑥潍敤䵬硡潃湵⡴⤩敲畴湲映污敳഻ ††椠瑮挠牵祓扭汯潍敤䍬畯瑮琽楨⹳敧却浹潢䵬摯汥祔数潃湵⡴祳扭汯湉敤ⱸ祴数㬩†਍†††晩琨楨⹳敧却浹潢䵬摯汥祔数潃湵⡴祳扭汯湉敤ⱸ祴数㸩琽楨⹳敧却浹潢䵬摯汥祔数慍䍸畯瑮⤨笩਍††††爠瑥牵⁮慦獬㭥਍†††⁽†਍††††††਍†††潬䑧瑡⹡摡䱤湩⡥㰢潃湵㹴•‫畣䵲摯汥潃湵⥴഻ ††氠杯慄慴愮摤楌敮∨匼浹潢㹬•‫奓䉍䱏䱟卉孔祳扭汯湉敤嵸㬩਍†††潬䑧瑡⹡摡䱤湩⡥㰢祓扭汯祔数潃湵㹴•‫畣卲浹潢䵬摯汥潃湵⥴഻ ††ഠ ††⼠樯摵敧瀠潲整瑣猠浹潢൬ ††⼠搯畯汢⁥档捥剫獩卫浵效杤䱥瑯㵳灏湥佟摲牥䍟敨正剟獩彫湕瑩畎⩭潃浭啟楮彴潌却穩㭥਍†††⼯潤扵敬挠敨正楒歳效杤䱥瑯慒整伽数彮牏敤彲桃捥彫楒歳䡟摥敧慒整※ഠ ††⼠氯杯慄慴愮摤楌敮∨挼敨正楒歳畓䡭摥敧潌獴∾⬠挠敨正楒歳畓䡭摥敧潌獴㬩††††††਍†††⼯潬䑧瑡⹡摡䱤湩⡥㰢档捥剫獩䡫摥敧潌剴瑡㹥•‫档捥剫獩䡫摥敧潌剴瑡⥥഻ ††ഠ ††爠瑥牵⁮牴敵഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼爠湵琠敨洠瑵⁩潭敤⁬祢猠杩慮൬⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ椊瑮䌠潍敤䝬楲つ刱湵敮㩲漺数䵮摯汥⡳ഩ笊†਍਍†爠敫䱥杯眮楲整浌䱴杯∨䵃摯汥片摩㄰畒湮牥›灯湥潍敤獬ㅟ⤢※†਍਍†䌠楓湧污楌瑳⨠楳湧污楌瑳琽楨⹳桳牡䍥汴朮瑥楓湧污桓牡⡥⸩敧剴慥卬杩慮䱬獩⡴㬩†††ഠ †晩猨杩慮䱬獩㵴丽䱕⥌敲畴湲〠഻ †਍†椠瑮猠湩汧䍥畯瑮猽杩慮䱬獩⹴潃湵⡴㬩†ഠ †湩⁴灯湥潍敤䍬畯瑮〽഻ †潬䑧瑡⹡敢楧䱮湩⡥㰢畒湮敮㹲•‫桴獩朮瑥潍敤䭬湩⡤ ‫䀢⁒†††∠㬩਍†映牯椨瑮椠〽椻猼湩汧䍥畯瑮椻⬫笩਍†ഠ ††⼠是汩整⁲潣摮瑩潩獮愠摮樠摵敧猠杩慮൬ ††䌠楓湧污‪楳湧污猽杩慮䱬獩⹴敧却杩慮⡬⥩※†††਍†††楳湧污献瑥潍敤䭬湩⡤桴獩洮摯汥楋摮㬩ഠ ††猠杩慮⹬敳却杩慮䑬晩偦灩⡳桴獩朮楲䑤獩慴据䑥晩偦灩⥳※਍†††晩ℨ桴獩漮数䍮湯楤楴湯猨杩慮⥬挩湯楴畮㭥਍†ഠ ††⼠漯数⁮潭敤⁬਍†††䵃摯汥⩉洠摯汥琽楨⹳牣慥整潍敤⡬㬩਍†††䵃摯汥畒湮牥㨺灯湥潍敤⡬潭敤ⱬ楳湧污㬩਍†††਍†††⼯晩琨楨⹳敧䵴摯汥楋摮⤨㴽䴨䑏䱅䭟义彄㄰ㄫ⤩⁻††ഠ ††⼠ †牰湩晴∨敮⁷畲湮敮⁲敢楧Ⅾ℡⤢഻ ††⼠累਍†††潬䑧瑡⹡摡䱤湩⡥㰢潭敤䥬㹤•‫潭敤⹬敧䵴摯汥摉⤨⬠∠剀††††⤢※਍†††灯湥潍敤䍬畯瑮⬫഻ ††⼠爯晥敲桳栠摥敧搠瑡ൡ ††⼠䌯潍敤剬湵敮㩲栺摥敧牏敤獲⤨※†ⴭ㈾㈰〵ㄲ‷洠摯晩⁹潴栠摥敧漠摲牥⁳湩琠敨洠摯汥਍†素਍††਍†氠杯慄慴献癡䱥湩⡥漢数䵮摯汥彳•‫桴獩朮瑥潍敤䭬湩⡤Ⱙ〱〰㬩਍†氠杯慄慴愮摤桃捥乫慖畬⡥漢数䵮摯汥潃湵彴•‫桴獩朮瑥潍敤䭬湩⡤Ⱙ灯湥潍敤䍬畯瑮㬩†⼯ⴭ氭杯慄慴琠獥⁴ഠ †਍†爠瑥牵⁮灯湥潍敤䍬畯瑮※†††਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†潬摡洠摯汥⁳祢洠牡敫⁴牯敤獲਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠潍敤䝬楲つ刱湵敮㩲爺䱥慯䵤摯汥⡳潶摩ഩ笊†਍†⼠爯汥慯⁤潭敤獬戠⁹慭歲瑥漠摲牥⁳†਍†䌠牁慲䱹獩㱴佃摲牥㸪‪漠摲牥楌瑳琽楨⹳桳牡䍥汴朮瑥潍敤卬慨敲⤨朮瑥牏敤獲⤨഻ †潦⁲椨瑮椠㴠〠※⁩‼牯敤䱲獩⹴潃湵⡴㬩椠⬫ ⁻ഠ ††䌠牏敤⁲漪摲牥഻ ††漠摲牥楌瑳吮祲敇噴污敵椨漬摲牥㬩਍†††晩䌨敨正潐湩整⡲牯敤⥲㴽佐义䕔归义䅖䥌⥄潣瑮湩敵഻ ††椠⡦桴獩朮瑥潍敤䭬湩⡤㴩漽摲牥朮瑥潍敤䭬湩⡤⤩ൻ ††††䵃摯汥片摩㄰‪潭敤㭬਍††††椠⡦琡楨⹳桳牡䍥汴朮瑥潍敤卬慨敲⤨挮湯慴湩䵳摯汥漨摲牥朮瑥潍敤䥬⡤⤩笩਍††††††潭敤㵬桴獩挮敲瑡䵥摯汥⤨഻ †††††洠摯汥椮楮⡴桴獩献慨敲瑃ⱬ਍†††††††††††††琠楨⹳敨杤䝥潲灵ബ †††††††††††††桴獩朮瑥潍敤䭬湩⡤Ⱙ਍†††††††††††††漠摲牥朮瑥潍敤䥬⡤Ⱙ਍†††††††††††††漠摲牥朮瑥祓扭汯⤨ബ †††††††††††††牯敤⹲敧佴摲牥祔数⤨㬩਍†††††††††††††ഠ †††††潭敤⹬敳却慴瑲楔敭漨摲牥朮瑥瑓牡呴浩⡥⤩഻ †††††潭敤⹬敳呴慲敤楔敭漨摲牥朮瑥瑓牡呴浩⡥⤩഻ †††††桴獩献慨敲瑃⹬敧䵴摯汥桓牡⡥⸩摡䵤摯汥洨摯汥㬩†††††ഠ ††††敽獬筥਍††††††潭敤㵬桴獩献慨敲瑃⹬敧䵴摯汥桓牡⡥⸩敧䵴摯汥漨摲牥朮瑥潍敤䥬⡤⤩഻ †††††椠⡦牯敤⹲敧却慴瑲楔敭⤨洼摯汥朮瑥瑓牡呴浩⡥⤩ൻ †††††††潭敤⹬敳却慴瑲楔敭漨摲牥朮瑥瑓牡呴浩⡥⤩഻ †††††素਍††††††晩漨摲牥朮瑥瑓牡呴浩⡥㸩潭敤⹬敧呴慲敤楔敭⤨笩਍†††††††洠摯汥献瑥牔摡呥浩⡥牯敤⹲敧却慴瑲楔敭⤨㬩਍††††††⁽†††††ഠ ††††ൽ ††††潭敤⹬摡佤摲牥漨摲牥㬩਍††††瀠楲瑮⡦䌢潍敤剬湵敮⁲敲潌摡潍敤獬‾ഢ ††††††††⬠∠洠摯汥楋摮∺⬠洠摯汥朮瑥潍敤䭬湩⡤ഩ ††††††††⬠∠洠摯汥摉∺⬠洠摯汥朮瑥潍敤䥬⡤ഩ ††††††††⬠∠猠浹潢㩬•‫潭敤⹬敧却浹潢⡬⤩※††††††††ഠ ††素਍†素਍†ഠ †⼯洠歡⁥潭敤獬挠敨正氠湩൥ †䅃牲祡楌瑳䌼潍敤䥬㸪‪†潭敤䱬獩㵴桴獩献慨敲瑃⹬敧䵴摯汥桓牡⡥⸩敧䵴摯汥⡳㬩਍†映牯⠠湩⁴⁩‽㬰椠㰠洠摯汥楌瑳䌮畯瑮⤨※⭩⤫笠ഠ ††䌠潍敤䥬⨠潭敤㭬਍†††潭敤䱬獩⹴牔䝹瑥慖畬⡥Ⱪ潭敤⥬഻ ††椠⡦潭敤㵬丽䱕⥌潣瑮湩敵഻ ††椠⡦桴獩朮瑥潍敤䭬湩⡤㴩洽摯汥朮瑥潍敤䭬湩⡤⤩ൻ ††††桴獩献慨敲瑃⹬敧剴捥癯牥卹慨敲⤨氮慯剤湡敧湉潦洨摯汥㬩਍††††洠摯汥爮晥敲桳⤨※††ഠ ††素†††਍†素਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯匠瑥瀠牡浡瑥牥൳⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ瘊楯⁤䵃摯汥片摩㄰畒湮牥㨺敳側牡浡瑥牥⡳湩⁴慭佸摲牥潃湵ⱴഠ ††††††††††††††††††††猠牴湩⁧楤瑳湡散楌瑳ബ ††††††††††††††††††††搠畯汢⁥牧摩楄瑳湡散楄晦楐獰ബ ††††††††††††††††††††猠牴湩⁧牰景瑩楌瑳‬਍†††††††††††††††††††††潤扵敬猠潴䱰獯ⱳഠ ††††††††††††††††††††搠畯汢⁥牰瑯捥ⱴഠ ††††††††††††††††††††搠畯汢⁥牰瑯捥䑴晩⥦਍ൻ †⼯匠瑥洠硡漠摲牥挠畯瑮਍†朠楲䵤硡牏敤䍲畯瑮㴠洠硡牏敤䍲畯瑮഻ †਍†⼠ 慐獲⁥楤瑳湡散氠獩൴ †潣䙭湵⹣瑓楲杮潔潄扵敬牁慲⡹楤瑳湡散楌瑳‬牧摩楄瑳湡散‬Ⱗ⤧഻ †桴獩朮楲䑤獩慴据䑥晩偦灩㵳牧摩楄瑳湡散楄晦楐獰഻ †਍†⼠ 慐獲⁥牰景瑩氠獩൴ †潣䙭湵⹣瑓楲杮潔潄扵敬牁慲⡹牰景瑩楌瑳‬牧摩牐景瑩‬Ⱗ⤧഻ †਍†⼠ 敓⁴瑯敨⁲慰慲敭整獲਍†朠楲卤潴䱰獯⁳‽瑳灯潌獳഻ †牰瑯捥側灩⁳‽牰瑯捥㭴਍†瀠潲整瑣楄晦楐獰㴠瀠潲整瑣楄晦഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼敳⁴慰慲敭整⁲祢挠獵潴業敺਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩†䵃摯汥片摩㄰畒湮牥㨺敳䝴楲䵤硡牏敤䍲畯瑮椨瑮瘠污敵笩਍†琠楨⹳牧摩慍佸摲牥潃湵㵴慶畬㭥਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†汣獡⁳潣獮牴捵潴⁲†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䵃摯汥片摩㄰畒湮牥㨺䵃摯汥片摩㄰畒湮牥⤨ൻ †桴獩献瑥慐慲敭整獲䜨䥒彄䅍彘剏䕄归佃乕ⱔ਍††††††††††††則䑉䕟员久彄䥌呓ബ †††††††††††䜠䥒彄䥄呓乁䕃䑟䙉彆䥐卐ബ †††††††††††䜠䥒彄剐䙏呉䱟卉ⱔ਍††††††††††††則䑉卟佔彐佌卓偟偉ⱓ਍††††††††††††䕈䝄彅則䑉偟佒䕔呃偟偉ⱓ਍††††††††††††䕈䝄彅則䑉偟佒䕔呃䑟䙉彆䥐卐㬩਍਍ൽ䌊潍敤䝬楲つ刱湵敮㩲縺䵃摯汥片摩㄰畒湮牥⤨絻਍
+//+------------------------------------------------------------------+
+//|                                                    CModelCtl.mqh |
+//|                                                         rkee.rkk |
+//+------------------------------------------------------------------+
+#property copyright "rkee.rkk"
+
+#include "../../../../header/model/CHeader.mqh"
+#include "../../../../share/CShareCtl.mqh"
+#include "../../../CModelI.mqh"
+#include "../../../CModelRunner.mqh"
+#include "CModelGrid01.mqh"
+
+class CModelGrid01Runner : public CModelRunner 
+  {
+private:
+      //grid set parameter
+      int               gridMaxOrderCount;    //set parameter
+      double            gridDistance[];       //set parameter
+      double            gridProfit[];         //set parameter
+      double            gridStopLoss;         //set parameter
+      double            protectPips;          //set parameter
+      double            protectDiffPips;      //set parameter
+      double            gridDistanceDiffPips; //set parameter
+public:
+                        CModelGrid01Runner();
+                        ~CModelGrid01Runner();
+      //--- init   models when init               
+      void              initModels();                    
+      //--- run model runner
+      //void            run();   
+      //--- reload   models when init
+      void              reLoadModels();
+      //--- open conditions to create model
+      bool              openCondition(CSignal* signal);
+      //--- create model
+      CModelI*          createModel();
+      //--- clean models(when models no orders)
+      int               openModels();
+      //--- extend/run model list
+      void              extendModels(); 
+      //--- close/run model list
+      void              closeModels();            
+      //--- set parameters
+      void              setParameters(int maxOrderCount, 
+                                       string distanceList, 
+                                       double gridDistanceDiffPips,
+                                       string profitList, 
+                                       double stopLoss, 
+                                       double protect, 
+                                       double protectDiff); 
+                                       
+      //--- set parameter by customize
+      void              setGridMaxOrderCount(int value);
+      
+      //--- judge if diff other symbol models
+      //bool           diffOtherSymbolModels(int symbolIndex,ENUM_ORDER_TYPE type);
+                                            
+  };   
+
+//+------------------------------------------------------------------+
+//|  load models
+//+------------------------------------------------------------------+
+void CModelGrid01Runner::initModels(void)
+{  
+   this.reLoadModels();
+}
+
+//+------------------------------------------------------------------+
+//|  create the model01
+//+------------------------------------------------------------------+
+CModelI* CModelGrid01Runner::createModel()
+{     
+   CModelGrid01* model=new CModelGrid01();
+   model.setParameters(this.gridMaxOrderCount,
+                        this.gridDistance,
+                        this.gridProfit,
+                        this.gridStopLoss,
+                        this.protectPips,
+                        this.protectDiffPips);
+   model.setModelStatus(MODEL_STATUS_READY);
+   return model;
+} 
+
+//+------------------------------------------------------------------+
+//|  filter conditions to create model
+//+------------------------------------------------------------------+
+bool  CModelGrid01Runner::openCondition(CSignal* signal){
+            
+      // parent conditions
+      if(!CModelRunner::openFilter(signal))return false;
+      
+      int    symbolIndex=signal.getSymbolIndex();
+      ENUM_ORDER_TYPE type=signal.getTradeType();
+      if(symbolIndex<0)return false;      
+      
+      //max hedge group order 
+      int curModelCount=this.getModelCount();  
+      if(this.getModelCount()>this.getModelMaxCount())return false;
+      int curSymbolModelCount=this.getSymbolModelTypeCount(symbolIndex,type);  
+      if(this.getSymbolModelTypeCount(symbolIndex,type)>=this.getSymbolModelTypeMaxCount()){
+         return false;
+      }   
+            
+      logData.addLine("<Count>" + curModelCount);
+      logData.addLine("<Symbol>" + SYMBOL_LIST[symbolIndex]);
+      logData.addLine("<SymbolTypeCount>" + curSymbolModelCount);
+      
+      //judge protect symbol
+      //double checkRiskSumHedgeLots=Open_Order_Check_Risk_UnitNum*Comm_Unit_LotSize;
+      //double checkRiskHedgeLotRate=Open_Order_Check_Risk_HedgeRate;  
+      //logData.addLine("<checkRiskSumHedgeLots>" + checkRiskSumHedgeLots);            
+      //logData.addLine("<checkRiskHedgeLotRate>" + checkRiskHedgeLotRate);
+      
+      return true;
+}
+
+//+------------------------------------------------------------------+
+//|  run the muti model by signal
+//+------------------------------------------------------------------+
+int CModelGrid01Runner::openModels()
+{  
+
+   rkeeLog.writeLmtLog("CModelGrid01Runner: openModels_1");   
+
+   CSignalList *signalList=this.shareCtl.getSignalShare().getRealSignalList();       
+   if(signalList==NULL)return 0;
+   
+   int singleCount=signalList.Count();   
+   int openModelCount=0;
+   logData.beginLine("<Runnner>" + this.getModelKind() + "@R        ");
+   for(int i=0;i<singleCount;i++){
+   
+      //filter conditions and judge signal
+      CSignal* signal=signalList.getSignal(i);       
+      signal.setModelKind(this.modelKind); 
+      signal.setSignalDiffPips(this.gridDistanceDiffPips); 
+      if(!this.openCondition(signal))continue;
+   
+      //open model 
+      CModelI* model=this.createModel();
+      CModelRunner::openModel(model,signal);
+      
+      //if(this.getModelKind()==(MODEL_KIND_01+1)){      
+      //   printf("new runnner begin!!!");
+      //}
+      logData.addLine("<modelId>" + model.getModelId() + "@R        "); 
+      openModelCount++;
+      //refresh hedge data
+      //CModelRunner::hedgeOrders();   -->20250217  modify to hedge orders in the model
+   }
+    
+   logData.saveLine("openModels_" + this.getModelKind(),1000);
+   logData.addCheckNValue("openModelCount_" + this.getModelKind(),openModelCount);  //---logData test  
+   
+   return openModelCount;       
+}
+
+//+------------------------------------------------------------------+
+//|  load models by market orders
+//+------------------------------------------------------------------+
+void CModelGrid01Runner::reLoadModels(void)
+{  
+   //reload models by market orders   
+   CArrayList<COrder*>*  orderList=this.shareCtl.getModelShare().getOrders();
+   for (int i = 0; i < orderList.Count(); i++) {  
+      COrder *order;
+      orderList.TryGetValue(i,order);
+      if(CheckPointer(order)==POINTER_INVALID)continue;
+      if(this.getModelKind()==order.getModelKind()){
+         CModelGrid01* model;
+         if(!this.shareCtl.getModelShare().containsModel(order.getModelId())){
+            model=this.createModel();
+            model.init(this.shareCtl,
+                           this.hedgeGroup,
+                           this.getModelKind(),
+                           order.getModelId(),
+                           order.getSymbol(),
+                           order.getOrderType());
+                           
+           model.setStartTime(order.getStartTime());
+           model.setTradeTime(order.getStartTime());
+           this.shareCtl.getModelShare().addModel(model);           
+         }else{
+            model=this.shareCtl.getModelShare().getModel(order.getModelId());
+            if(order.getStartTime()<model.getStartTime()){
+               model.setStartTime(order.getStartTime());
+            }
+            if(order.getStartTime()>model.getTradeTime()){
+               model.setTradeTime(order.getStartTime());
+            }            
+         }
+         model.addOrder(order);
+         printf("CModelRunner reLoadModels> "
+                  + " modelKind:" + model.getModelKind()
+                  + " modelId:" + model.getModelId()
+                  + " symbol:" + model.getSymbol());                  
+      }
+   }
+   
+   // make models check line
+   CArrayList<CModelI*>*   modelList=this.shareCtl.getModelShare().getModels();
+   for (int i = 0; i < modelList.Count(); i++) { 
+      CModelI *model;
+      modelList.TryGetValue(i,model);
+      if(model==NULL)continue;
+      if(this.getModelKind()==model.getModelKind()){
+         this.shareCtl.getRecoveryShare().loadRangeInfo(model);
+         model.refresh();      
+      }      
+   }
+}
+
+//+------------------------------------------------------------------+
+//| Set parameters
+//+------------------------------------------------------------------+
+void CModelGrid01Runner::setParameters(int maxOrderCount, 
+                                          string distanceList,
+                                          double gridDistanceDiffPips,
+                                          string profitList, 
+                                          double stopLoss, 
+                                          double protect, 
+                                          double protectDiff)
+{
+   // Set max order count
+   gridMaxOrderCount = maxOrderCount;
+   
+   // Parse distance list
+   comFunc.StringToDoubleArray(distanceList, gridDistance, ',');
+   this.gridDistanceDiffPips=gridDistanceDiffPips;
+   
+   // Parse profit list
+   comFunc.StringToDoubleArray(profitList, gridProfit, ',');
+   
+   // Set other parameters
+   gridStopLoss = stopLoss;
+   protectPips = protect;
+   protectDiffPips = protectDiff;
+}
+
+//+------------------------------------------------------------------+
+//| set parameter by customize
+//+------------------------------------------------------------------+
+void  CModelGrid01Runner::setGridMaxOrderCount(int value){
+   this.gridMaxOrderCount=value;
+}
+
+//+------------------------------------------------------------------+
+//|  class constructor   
+//+------------------------------------------------------------------+
+CModelGrid01Runner::CModelGrid01Runner(){
+   this.setParameters(GRID_MAX_ORDER_COUNT,
+                        GRID_EXTEND_LIST,
+                        GRID_DISTANCE_DIFF_PIPS,
+                        GRID_PROFIT_LIST,
+                        GRID_STOP_LOSS_PIPS,
+                        HEDGE_GRID_PROTECT_PIPS,
+                        HEDGE_GRID_PROTECT_DIFF_PIPS);
+
+}
+CModelGrid01Runner::~CModelGrid01Runner(){}
