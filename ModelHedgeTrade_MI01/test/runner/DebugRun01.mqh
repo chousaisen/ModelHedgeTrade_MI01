@@ -1,1 +1,244 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼††††††††††††††††††††††††䴠摯汥剳湵㄰洮桱簠਍⼯⁼††††††††††††††††††††††††††††歲敥爮歫簠਍⼯⁼††††††††††††††††††††††††††††††††簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍瀣潲数瑲⁹潣祰楲桧⁴爢敫⹥歲≫਍瀣潲数瑲⁹楬歮†††∢਍瀣潲数瑲⁹敶獲潩⁮†ㄢ〮∰਍਍椣据畬敤∠⸮ⸯ⼮灡獰猯慨敲䌯桓牡䍥汴洮桱ഢ⌊湩汣摵⁥⸢⼮⸮愯灰⽳慭歲瑥䌯慍歲瑥瑃⹬煭≨਍椣据畬敤∠⸮ⸯ⼮灡獰椯摮捩瑡牯䌯湉楤慣潴䍲汴洮桱ഢ⌊湩汣摵⁥⸢⼮⸮愯灰⽳楳湧污䌯楓湧污瑃⹬煭≨਍椣据畬敤∠⸮ⸯ⼮灡獰栯摥敧䌯效杤䍥汴洮桱ഢ⌊湩汣摵⁥⸢⼮⸮愯灰⽳潭敤⽬䵃摯汥瑃⹬煭≨਍椣据畬敤∠⸮ⸯ⼮灡獰琯慲敤䌯牔摡䍥汴洮桱ഢ⌊湩汣摵⁥⸢⼮⸮愯灰⽳潬杧牥䌯潌杧牥洮桱ഢഊ ⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼洠摯汥氠杯捩挠獵整浲楬敺ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⌊湩汣摵⁥⸢⼮⸮愯灰⽳潭敤⽬慢敳术楲⽤ね⼱䵃摯汥片摩㄰畒湮牥洮桱ഢ⌊湩汣摵⁥⸢⼮⸮愯灰⽳潭敤⽬楦瑬牥漯数⽮䙃汩整佲数の⸱煭≨਍椣据畬敤∠⸮ⸯ⼮灡獰洯摯汥是汩整⽲汣獯⽥䙃汩整䍲潬敳㄰洮桱ഢ⌊湩汣摵⁥⸢⼮⸮愯灰⽳潭敤⽬楦瑬牥振潬敳䌯楆瑬牥汃獯づ⸲煭≨਍椣据畬敤∠⸮ⸯ⼮灡獰洯摯汥是汩整⽲汣慥⽲䙃汩整䍲敬牡㄰洮桱ഢ⌊湩汣摵⁥⸢⼮⸮愯灰⽳敨杤⽥潭敤獬洯㄰䌯效杤䵥摯汥㄰洮桱ഢഊ挊慬獳䌠畒敮割൥ 笠਍†瀠楲慶整ഺ ††䌠桓牡䍥汴††††††猠慨敲瑃㭬਍†††䵃牡敫䍴汴††††††慭歲瑥瑃㭬਍†††䥃摮捩瑡牯瑃⁬††††湩楤慣潴䍲汴഻ ††䌠楓湧污瑃⁬†††††猠杩慮䍬汴഻ ††䌠效杤䍥汴††††††栠摥敧瑃㭬਍†††䵃摯汥瑃⁬††††††潭敤䍬汴഻ ††䌠牔摡䍥汴††††††琠慲敤瑃㭬਍†††䡃摥敧潍敤ぬ‱††††敨杤䵥摯汥㄰഻ ††䌠楆瑬牥灏湥㄰††††映汩整佲数の㬱਍†††䙃汩整䍲潬敳㄰††††楦瑬牥汃獯づ㬱਍†††䙃汩整䍲潬敳㈰††††楦瑬牥汃獯づ㬲਍†††䙃汩整䍲敬牡㄰††††楦瑬牥汃慥ひ㬱਍†瀠扵楬㩣਍††††††††††††剃湵牥敒⤨഻ †††††††††††䍾畒敮割⡥㬩਍††††ഠ ††††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍††††⼠簯†潣浭洠瑥潨獤਍††††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫†††਍††††瘠楯⁤†††††椠楮⡴㬩਍††††瘠楯⁤†††††爠晥敲桳⤨※††⼠振浯潭⁭敲牦獥൨ ††††਍††††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ ††††⼯⁼漠数⁮牯敤獲਍††††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫†††਍††††瘠楯⁤†††††漠数⡮㬩††††⼯灯湥ഠ ††††潶摩††††††灯湥潍敤獬⤨※†⼠漯数⁮潭敤獬਍††††瘠楯⁤†††††攠瑸湥䵤摯汥⡳㬩†⼯灯湥洠摯汥⁳††††਍††††ഠ ††††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍††††⼠簯†汣獯⁥牯敤獲਍††††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫†††਍††††瘠楯⁤†††††挠潬敳⤨഻ ††††潶摩††††††汣獯䵥摯汥⡳㬩ഠ ††††਍††††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ ††††⼯⁼瀠潲整瑣朠潲灵洨歡⁥敮⁷畲湮牥术潲灵琠⁯牰瑯捥⁴畣牲湥⁴牧畯⁰牯敤獲ഩ ††††⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍††††瘠楯⁤†††††牣慥整牐瑯捥䝴潲灵⤨഻ ††††਍††††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ ††††⼯⁼挠敬牡爠獩⁫潭敤獬਍††††⼠⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ ††††潶摩†††††挠敬牡楒歳潍敤獬⤨※††††਍㭽਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼椠楮楴污穩⁥桴⁥汣獡൳⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ瘊楯⁤剃湵牥敒㨺湩瑩⤨਍†ൻ ഠ †⼯湩瑩氠杯敧൲ †潬杧牥椮楮⡴琦楨⹳桳牡䍥汴☬桴獩洮牡敫䍴汴㬩਍†ഠ †⼯湩瑩瀠牡浡瑥牥൳ †桴獩献慨敲瑃⹬湩瑩⤨഻ †桴獩椮摮捩瑡牯瑃⹬湩瑩☨桳牡䍥汴㬩†ഠ †桴獩献杩慮䍬汴椮楮⡴琦楨⹳湩楤慣潴䍲汴☬桴獩献慨敲瑃⥬഻ †桴獩洮牡敫䍴汴椮楮⡴琦楨⹳桳牡䍥汴㬩਍†琠楨⹳敨杤䍥汴椮楮⡴琦楨⹳桳牡䍥汴㬩਍†琠楨⹳潭敤䍬汴椮楮⡴琦楨⹳桳牡䍥汴㬩਍†琠楨⹳牴摡䍥汴椮楮⡴琦楨⹳桳牡䍥汴㬩਍†ഠ †⼯摡⁤湩楤慣潴⁲楦瑬牥਍†琠楨⹳楦瑬牥灏湥㄰椮楮⡴琦楨⹳桳牡䍥汴㬩਍†琠楨⹳楦瑬牥汃獯づ⸱湩瑩☨桴獩献慨敲瑃⥬഻ †桴獩昮汩整䍲潬敳㈰椮楮⡴琦楨⹳桳牡䍥汴㬩਍†琠楨⹳楦瑬牥汃慥ひ⸱湩瑩☨桴獩献慨敲瑃⥬഻ †桴獩献慨敲瑃⹬敧䙴汩整卲慨敲⤨愮摤灏湥楆瑬牥☨桴獩昮汩整佲数の⤱഻ †桴獩献慨敲瑃⹬敧䙴汩整卲慨敲⤨愮摤汃獯䙥汩整⡲琦楨⹳楦瑬牥汃獯づ⤱഻ †桴獩献慨敲瑃⹬敧䙴汩整卲慨敲⤨愮摤汃獯䙥汩整⡲琦楨⹳楦瑬牥汃獯づ⤲഻ †桴獩献慨敲瑃⹬敧䙴汩整卲慨敲⤨愮摤汃慥䙲汩整⡲琦楨⹳楦瑬牥汃慥ひ⤱഻ †਍†⼠氯慯⁤慭歲瑥漠摲牥൳ †桴獩洮牡敫䍴汴氮慯佤摲牥⡳㬩ഠ †਍†⼠洯歡⁥瑳牡⁴畲湮牥਍†琠楨⹳敨杤䵥摯汥㄰椮楮⡴琦楨⹳桳牡䍥汴㬩਍†琠楨⹳敨杤䵥摯汥㄰献瑥瑓牡䝴潲灵摉䴨䑏䱅䭟义彄㄰㬩਍†琠楨⹳敨杤䵥摯汥㄰献慴瑲畒湮牥☨桴獩洮摯汥瑃⥬※਍††††਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†潣浭浯爠晥敲桳਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠畒敮割㩥爺晥敲桳⤨ൻ †਍†氠杯慄慴爮獥瑥⤨഻ †⼯敲敳⁴慤慴਍†琠楨⹳桳牡䍥汴爮晥敲桳⤨※††ഠ †桴獩椮摮捩瑡牯瑃⹬敲牦獥⡨㬩਍†氠杯敧⹲潬彧湉楤慣潴⡲椢摮捩瑡牯㄰⤢഻ †⼯潬䑧瑡⹡敢楧⡮㬩††††††⼯潬⁧敢楧൮ †⼯桴獩洮牡敫䍴汴爮晥敲桳⤨※††ഠ †⼯桴獩栮摥敧瑃⹬敲牦獥⡨㬩਍†⼠琯楨⹳潭敤䍬汴爮晥敲桳⤨഻ †਍†⼠椯瑮猠浹潢䥬摮硥琽楨⹳桳牡䍥汴朮瑥祓扭汯桓牡⡥⸩敧却浹潢䥬摮硥∨䅘啕䑓⤢഻ †਍†⼠椯瑮挠牵桓晩乴琽楨⹳桳牡䍥汴朮瑥湉楤慣潴卲慨敲⤨朮瑥牐捩䍥汨桓晩䱴癥汥猨浹潢䥬摮硥㬩਍†ഠ †⼯牰湩晴∨畣卲楨瑦㩎•‫畣卲楨瑦⥎഻ †਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†灯湥漠摲牥⁳਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠畒敮割㩥漺数⡮ഩ笊ഠ †⼯桴獩椮摮捩瑡牯瑃⹬敲牦獥⡨㬩਍†⼠琯楨⹳硥整摮潍敤獬⤨഻ †⼯桴獩漮数䵮摯汥⡳㬩††ഠ紊†ഠഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†汣獯⁥牯敤獲ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ瘊楯⁤剃湵牥敒㨺汣獯⡥ഩ笊†ഠ †⼯桴獩椮摮捩瑡牯瑃⹬敲牦獥⡨㬩਍†⼠琯楨⹳汣獯䵥摯汥⡳㬩਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†灯湥漠摲牥⁳洯摯汥൳⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ瘊楯⁤剃湵牥敒㨺灯湥潍敤獬⤨਍⁻†ഠ †⼯潣浭浯爠晥敲桳਍†琠楨⹳敲牦獥⡨㬩਍†氠杯敧⹲潬彧片畯䡰摥敧湉潦☨桴獩洮摯汥瑃⥬഻ †਍†⼠漯数⁮潭敤獬††਍†琠楨⹳潭敤䍬汴漮数䵮摯汥⡳㬩ഠ †਍†氠杯敧⹲潬彧潍敤獬灏湥☨桴獩洮摯汥瑃⥬※††⼠⴯‭潬⁧湩潦洨摯汥漠数⥮਍†ഠ †⼯牴摡⁥灯湥਍†琠楨⹳牴摡䍥汴漮数呮慲敤⤨※਍†ഠ †⼯潬杧牥氮杯䵟摯汥即慴畴⡳㬩†††††††††⼯ⴭ氠杯椠普⡯潭敤⁬瑳瑡獵ഩ †潬杧牥氮杯佟摲牥即慴畴⡳漢摲牥瑓瑡獵⤢※††⼯ⴭ氠杯椠普⡯牯敤⁲瑳瑡獵ഩ紊ഠഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†硥整摮漠摲牥⁳洯摯汥൳⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ瘊楯⁤剃湵牥敒㨺硥整摮潍敤獬瘨楯⥤਍⁻਍†⼠振浯潭⁭敲牦獥൨ †桴獩爮晥敲桳⤨഻ †਍†⼠支瑸湥⁤潭敤獬਍†琠楨⹳潭敤䍬汴攮瑸湥䵤摯汥⡳㬩਍†ഠ †⼯牴摡⁥灯湥਍†琠楨⹳牴摡䍥汴漮数呮慲敤⤨※††਍⁽਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼挠潬敳漠摲牥⁳洯摯汥൳⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ瘊楯⁤剃湵牥敒㨺汣獯䵥摯汥⡳潶摩ഩ笊ഠ †⼯潣浭浯爠晥敲桳਍†琠楨⹳敲牦獥⡨㬩਍†ഠ †⼯汣獯⁥潭敤獬਍†琠楨⹳潭敤䍬汴挮潬敳潍敤獬⤨഻ †਍†⼠琯慲敤挠潬敳਍†琠楨⹳牴摡䍥汴挮潬敳牔摡⡥㬩††ഠ紊ഠഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†汣獯⁥牯敤獲⼠潭敤獬਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠畒敮割㩥挺敬牡楒歳潍敤獬瘨楯⥤਍⁻਍†⼠振浯潭⁭敲牦獥൨ †桴獩爮晥敲桳⤨഻ †਍†⼠瀯潲整瑣洠摯汥൳ †桴獩洮摯汥瑃⹬汣慥割獩䵫摯汥⡳㬩਍†ഠ †⼯牴摡⁥汣獯൥ †桴獩琮慲敤瑃⹬汣獯呥慲敤⤨※††਍⁽਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼挠潬敳漠摲牥⁳洯摯汥൳⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ瘊楯⁤剃湵牥敒㨺牣慥整牐瑯捥䝴潲灵⤨ൻഊ †⼯潣浭浯爠晥敲桳਍†琠楨⹳敲牦獥⡨㬩਍†ഠ †⼯牰瑯捥⁴牧畯൰ †桴獩栮摥敧潍敤ぬ⸱牰瑯捥剴獩䝫潲灵琨畲⥥഻ †਍†氠杯敧⹲潬彧楒歳片畯䥰普⡯㬩†††††††††⼯ⴭ爠獩⁫牧畯⁰湩潦਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯††汣獡⁳潣獮牴捵潴⁲†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍剃湵牥敒㨺剃湵牥敒⤨ൻ紊਍剃湵牥敒㨺䍾畒敮割⡥笩਍�
+//+------------------------------------------------------------------+
+//|                                                  ModelsRun01.mqh |
+//|                                                         rkee.rkk |
+//|                                                                  |
+//+------------------------------------------------------------------+
+#property copyright "rkee.rkk"
+#property link      ""
+#property version   "1.00"
+
+#include "../../apps/share/CShareCtl.mqh"
+#include "../../apps/market/CMarketCtl.mqh"
+#include "../../apps/indicator/CIndicatorCtl.mqh"
+#include "../../apps/signal/CSignalCtl.mqh"
+#include "../../apps/hedge/CHedgeCtl.mqh"
+#include "../../apps/model/CModelCtl.mqh"
+#include "../../apps/trade/CTradeCtl.mqh"
+#include "../../apps/logger/CLogger.mqh"
+
+ //+------------------------------------------------------------------+
+//|  model logic custermlize 
+//+------------------------------------------------------------------+
+#include "../../apps/model/base/grid/m01/CModelGrid01Runner.mqh"
+#include "../../apps/model/filter/open/CFilterOpen01.mqh"
+#include "../../apps/model/filter/close/CFilterClose01.mqh"
+#include "../../apps/model/filter/close/CFilterClose02.mqh"
+#include "../../apps/model/filter/clear/CFilterClear01.mqh"
+#include "../../apps/hedge/models/m01/CHedgeModel01.mqh"
+
+class CRunerRe
+  {
+   private:
+      CShareCtl             shareCtl;
+      CMarketCtl            marketCtl;
+      CIndicatorCtl         indicatorCtl;
+      CSignalCtl            signalCtl;
+      CHedgeCtl             hedgeCtl;
+      CModelCtl             modelCtl;
+      CTradeCtl             tradeCtl;
+      CHedgeModel01         hedgeModel01;
+      CFilterOpen01         filterOpen01;
+      CFilterClose01        filterClose01;
+      CFilterClose02        filterClose02;
+      CFilterClear01        filterClear01;
+   public:
+                        CRunerRe();
+                       ~CRunerRe();
+         
+         //+------------------------------------------------------------------+
+         //|  comm methods
+         //+------------------------------------------------------------------+       
+         void            init();
+         void            refresh();      //commom refresh
+         
+         //+------------------------------------------------------------------+
+         //|  open orders
+         //+------------------------------------------------------------------+       
+         void            open();        //open 
+         void            openModels();    //open models
+         void            extendModels();  //open models         
+         
+         //+------------------------------------------------------------------+
+         //|  close orders
+         //+------------------------------------------------------------------+       
+         void            close();
+         void            closeModels(); 
+         
+         //+------------------------------------------------------------------+
+         //|  protect group(make new runner/group to protect current group orders)
+         //+------------------------------------------------------------------+
+         void           createProtectGroup();
+         
+         //+------------------------------------------------------------------+
+         //|  clear risk models
+         //+------------------------------------------------------------------+
+         void           clearRiskModels();         
+};
+
+//+------------------------------------------------------------------+
+//|  initialize the class
+//+------------------------------------------------------------------+
+void CRunerRe::init()
+  {
+  
+   //init logger
+   logger.init(&this.shareCtl,&this.marketCtl);
+   
+   //init parameters
+   this.shareCtl.init();
+   this.indicatorCtl.init(&shareCtl);   
+   this.signalCtl.init(&this.indicatorCtl,&this.shareCtl);
+   this.marketCtl.init(&this.shareCtl);
+   this.hedgeCtl.init(&this.shareCtl);
+   this.modelCtl.init(&this.shareCtl);
+   this.tradeCtl.init(&this.shareCtl);
+   
+   //add indicator filter
+   this.filterOpen01.init(&this.shareCtl);
+   this.filterClose01.init(&this.shareCtl);
+   this.filterClose02.init(&this.shareCtl);
+   this.filterClear01.init(&this.shareCtl);
+   this.shareCtl.getFilterShare().addOpenFilter(&this.filterOpen01);
+   this.shareCtl.getFilterShare().addCloseFilter(&this.filterClose01);
+   this.shareCtl.getFilterShare().addCloseFilter(&this.filterClose02);
+   this.shareCtl.getFilterShare().addClearFilter(&this.filterClear01);
+   
+   //load market orders
+   this.marketCtl.loadOrders(); 
+   
+   //make start runner
+   this.hedgeModel01.init(&this.shareCtl);
+   this.hedgeModel01.setStartGroupId(MODEL_KIND_01);
+   this.hedgeModel01.startRunner(&this.modelCtl); 
+        
+}
+
+//+------------------------------------------------------------------+
+//|  commom refresh
+//+------------------------------------------------------------------+
+void CRunerRe::refresh(){
+   
+   logData.reset();
+   //reset data
+   this.shareCtl.refresh();      
+   this.indicatorCtl.refresh();
+   logger.log_Indicator("indicator01");
+   //logData.begin();            //log begin
+   //this.marketCtl.refresh();      
+   //this.hedgeCtl.refresh();
+   //this.modelCtl.refresh();
+   
+   //int symbolIndex=this.shareCtl.getSymbolShare().getSymbolIndex("XAUUSD");
+   
+   //int curShiftN=this.shareCtl.getIndicatorShare().getPriceChlShiftLevel(symbolIndex);
+   
+   //printf("curShiftN:" + curShiftN);
+   
+}
+
+//+------------------------------------------------------------------+
+//|  open orders 
+//+------------------------------------------------------------------+
+void CRunerRe::open()
+{ 
+   //this.indicatorCtl.refresh();
+   //this.extendModels();
+   //this.openModels();     
+}   
+
+//+------------------------------------------------------------------+
+//|  close orders 
+//+------------------------------------------------------------------+
+void CRunerRe::close()
+{   
+   //this.indicatorCtl.refresh();
+   //this.closeModels();
+}
+
+//+------------------------------------------------------------------+
+//|  open orders /models
+//+------------------------------------------------------------------+
+void CRunerRe::openModels()
+{    
+   //commom refresh
+   this.refresh();
+   logger.log_GroupHedgeInfo(&this.modelCtl);
+   
+   //open models    
+   this.modelCtl.openModels(); 
+   
+   logger.log_ModelsOpen(&this.modelCtl);      //-- log info(model open)
+   
+   //trade open
+   this.tradeCtl.openTrade(); 
+   
+   //logger.log_ModelsStatus();                  //-- log info(model status)
+   logger.log_OrdersStatus("orderStatus");     //-- log info(order status)
+} 
+
+//+------------------------------------------------------------------+
+//|  extend orders /models
+//+------------------------------------------------------------------+
+void CRunerRe::extendModels(void)
+{ 
+   //commom refresh
+   this.refresh();
+   
+   //extend models
+   this.modelCtl.extendModels();
+   
+   //trade open
+   this.tradeCtl.openTrade();     
+} 
+
+//+------------------------------------------------------------------+
+//|  close orders /models
+//+------------------------------------------------------------------+
+void CRunerRe::closeModels(void)
+{ 
+   //commom refresh
+   this.refresh();
+   
+   //close models
+   this.modelCtl.closeModels();
+   
+   //trade close
+   this.tradeCtl.closeTrade();     
+} 
+
+//+------------------------------------------------------------------+
+//|  close orders /models
+//+------------------------------------------------------------------+
+void CRunerRe::clearRiskModels(void)
+{ 
+   //commom refresh
+   this.refresh();
+   
+   //protect models
+   this.modelCtl.clearRiskModels();
+   
+   //trade close
+   this.tradeCtl.closeTrade();     
+} 
+
+//+------------------------------------------------------------------+
+//|  close orders /models
+//+------------------------------------------------------------------+
+void CRunerRe::createProtectGroup(){
+
+   //commom refresh
+   this.refresh();
+   
+   //protect group
+   this.hedgeModel01.protectRiskGroup(true);
+   
+   logger.log_RiskGroupInfo();                  //-- risk group info
+}
+
+//+------------------------------------------------------------------+
+//|    class constructor   
+//+------------------------------------------------------------------+
+CRunerRe::CRunerRe(){
+}
+CRunerRe::~CRunerRe(){
+}

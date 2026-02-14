@@ -1,1 +1,43 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼††††††††††††††††††††††††††䌠效摡牥洮桱簠਍⼯⁼††††††††††††††††††††††††††††歲敥爮歫簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍਍湩異⁴猠牴湩⁧䘠䱉䕔归偏久卟呅䥔䝎∽ⴭⴭⴭ映汩整⁲灯湥洠摯汥ⴠⴭⴭ∭഻ഊ椊灮瑵†潢汯††則䑉佟䕐彎䥆呌剅䍟䕈䭃偟十㵓慦獬㭥਍湩異⁴戠潯⁬†䜠䥒彄偏久䙟䱉䕔归䡃䍅彋呓呁单琽畲㭥਍湩異⁴戠潯⁬†䜠䥒彄偏久䙟䱉䕔归䡃䍅彋䕈䝄㵅慦獬㭥਍湩異⁴戠潯⁬†䜠䥒彄偏久䙟䱉䕔归䡃䍅彋䥄䙆琽畲㭥਍湩異⁴戠潯⁬†䜠䥒彄偏久䙟䱉䕔归䡃䍅彋䑅䕇剟呁㵅慦獬㭥਍਍਍湩異⁴搠畯汢⁥䜠䥒彄偏久䙟䱉䕔归乒彇䥍彎䑅䕇剟呁㵅⸰㬵਍湩異⁴搠畯汢⁥䜠䥒彄偏久䙟䱉䕔归乔彄䅍彘䑅䕇剟呁㵅⸰㬵਍਍湩異⁴搠畯汢⁥䜠䥒彄偏久剟乁䕇䑟䙉彆䅂䕓剟呁⁅㈽഻椊灮瑵†湩⁴††則䑉佟䕐彎䕈䝄彅䥍彎剏䕄归佃乕㵔㬵਍湩異⁴搠畯汢⁥䜠䥒彄偏久䱟䵉呉䕟䍘䕅彄䕒佌㵔⸰㈰഻椊灮瑵†潤扵敬†則䑉佟䕐彎䥌䥍彔塅䕃䑅剟䱅呏剟呁㵅⸰㬱਍湩異⁴戠潯⁬†䜠䥒彄偏久䕟䍘䕅彄啊偍琽畲㭥਍湩異⁴搠畯汢⁥䜠䥒彄偏久䕟䍘䕅彄啊偍䵟义偟偉㵓〵〰഻椊灮瑵†潢汯††則䑉佟䕐彎塅䕃䑅䍟剕䩟䵕㵐牴敵഻椊灮瑵†潤扵敬†則䑉佟䕐彎塅䕃䑅䩟䵕彐啃归䥍彎䥐卐ㄽ〰㬰਍湩異⁴戠潯⁬†䜠䥒彄偏久䕟䍘䕅彄䑁啊呓䑟䙉㵆牴敵഻椊灮瑵†潢汯††則䑉佟䕐彎塅䕃䑅䅟䩄单彔乏奌䍟剕䑟䙉㵆牴敵഻椊灮瑵†潤扵敬†則䑉佟䕐彎塅䕃䑅䅟䩄单彔則坏剟呁㵅⸱㬲਍湩異⁴搠畯汢⁥䜠䥒彄偏久䕟䍘䕅彄䑁啊呓䵟义剟呁㵅⸰㬵਍湩異⁴搠畯汢⁥䜠䥒彄偏久䕟䍘䕅彄䑁啊呓䵟塁剟呁㵅㬵਍湩異⁴搠畯汢⁥䜠䥒彄偏久䕟䍘䕅彄䑁啊呓䉟䝅义䍟問呎㘽഻椊灮瑵†潤扵敬†則䑉佟䕐彎塅䕃䑅䅟䩄单彔久彄佃乕㵔〲഻ഊ椊灮瑵†潤扵敬†則䑉佟䕐彎䥍彎䥒䭓䕟䍘䕅彄剐䙏呉〽഻椊灮瑵†潤扵敬†則䑉佟䕐彎䅍彘䥒䭓䕟䍘䕅彄剐䙏呉ⴽ〹〰഻椊灮瑵†潤扵敬†則䑉佟䕐彎䥍彎䥒䭓䡟䑅䕇剟呁㵅㬰਍湩異⁴搠畯汢⁥䜠䥒彄偏久䵟塁剟卉彋䕈䝄彅䅒䕔ㄽ഻椊灮瑵†潤扵敬†則䑉佟䕐彎䥒䭓䡟䑅䕇䝟佒彗䅒䕔ㄽ഻椊灮瑵†潤扵敬†則䑉佟䕐彎䥍彎䥒䭓䑟䙉彆䅒䕔ㄽ഻椊灮瑵†潤扵敬†則䑉佟䕐彎䅍彘䥒䭓䑟䙉彆䅒䕔〽഻椊灮瑵†潤扵敬†則䑉佟䕐彎䥒䭓䑟䙉彆則坏剟呁㵅㬱਍਍湩異⁴搠畯汢⁥䜠䥒彄偏久剟乁䕇偟十当䕓佃䑎㵓㘳〰�
+//+------------------------------------------------------------------+
+//|                                                      CHeader.mqh |
+//|                                                         rkee.rkk |
+//+------------------------------------------------------------------+
+
+input  string  FILTER_OPEN_SETTING="------ filter open model ------";
+
+input  bool    GRID_OPEN_FILTER_CHECK_PASS=false;
+input  bool    GRID_OPEN_FILTER_CHECK_STATUS=true;
+input  bool    GRID_OPEN_FILTER_CHECK_HEDGE=false;
+input  bool    GRID_OPEN_FILTER_CHECK_DIFF=true;
+input  bool    GRID_OPEN_FILTER_CHECK_EDGE_RATE=false;
+
+
+input  double  GRID_OPEN_FILTER_RNG_MIN_EDGE_RATE=0.5;
+input  double  GRID_OPEN_FILTER_TND_MAX_EDGE_RATE=0.5;
+
+input  double  GRID_OPEN_RANGE_DIFF_BASE_RATE =2;
+input  int     GRID_OPEN_HEDGE_MIN_ORDER_COUNT=5;
+input  double  GRID_OPEN_LIMIT_EXCEED_RELOT=0.02;
+input  double  GRID_OPEN_LIMIT_EXCEED_RELOT_RATE=0.1;
+input  bool    GRID_OPEN_EXCEED_JUMP=true;
+input  double  GRID_OPEN_EXCEED_JUMP_MIN_PIPS=5000;
+input  bool    GRID_OPEN_EXCEED_CUR_JUMP=true;
+input  double  GRID_OPEN_EXCEED_JUMP_CUR_MIN_PIPS=1000;
+input  bool    GRID_OPEN_EXCEED_ADJUST_DIFF=true;
+input  bool    GRID_OPEN_EXCEED_ADJUST_ONLY_CUR_DIFF=true;
+input  double  GRID_OPEN_EXCEED_ADJUST_GROW_RATE=1.2;
+input  double  GRID_OPEN_EXCEED_ADJUST_MIN_RATE=0.5;
+input  double  GRID_OPEN_EXCEED_ADJUST_MAX_RATE=5;
+input  double  GRID_OPEN_EXCEED_ADJUST_BEGIN_COUNT=6;
+input  double  GRID_OPEN_EXCEED_ADJUST_END_COUNT=20;
+
+input  double  GRID_OPEN_MIN_RISK_EXCEED_PROFIT=0;
+input  double  GRID_OPEN_MAX_RISK_EXCEED_PROFIT=-9000;
+input  double  GRID_OPEN_MIN_RISK_HEDGE_RATE=0;
+input  double  GRID_OPEN_MAX_RISK_HEDGE_RATE=1;
+input  double  GRID_OPEN_RISK_HEDGE_GROW_RATE=1;
+input  double  GRID_OPEN_MIN_RISK_DIFF_RATE=1;
+input  double  GRID_OPEN_MAX_RISK_DIFF_RATE=0;
+input  double  GRID_OPEN_RISK_DIFF_GROW_RATE=1;
+
+input  double  GRID_OPEN_RANGE_PASS_SECONDS=3600;

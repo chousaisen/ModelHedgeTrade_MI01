@@ -1,1 +1,66 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼†††††††††††††††††††††††††䱃杯楓畭慬楴湯瑃⹬煭⁨ർ⼊簯††††††††††††††††††††††††††††爠敫⹥歲⁫ർ⼊簯†††††††††††††††††††††††††††††††††ർ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⌊牰灯牥祴挠灯特杩瑨∠歲敥爮歫ഢ⌊牰灯牥祴氠湩⁫††∠ഢ⌊牰灯牥祴瘠牥楳湯†∠⸱〰ഢഊ⌊湩汣摵⁥䌢效摡牥洮桱ഢ⌊湩汣摵⁥⸢⼮桳牡⽥千慨敲瑃⹬煭≨਍椣据畬敤∠潬⽧䕃䱡杯楓湧污洮桱ഢഊഊ椊灮瑵猠牴湩⁧潣浭湥彴慥獟浩汵瑡潩彮敢楧㵮ⴢⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ㬢਍湩異⁴瑳楲杮䔠卡杩慮䭬湩䱤獩㵴ㄢ㄰ㄬ㈰㬢਍湩異⁴潤扵敬䔠卡杩慮䙬硩潌㵴㬰਍湩異⁴潤扵敬䔠卡杩慮䱬瑯慒整ㄽ഻椊灮瑵猠牴湩⁧潣浭湥彴慥獟浩汵瑡潩彮湥㵤ⴢⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ㬢਍਍汣獡⁳䱃杯楓畭慬楴湯瑃൬ 笠਍†††牰癩瑡㩥਍††††††千慨敲瑃⁬††⨠桳牡䍥汴഻ †††††䌠慅潌卧杩慮⁬†潬呧卯杩慮㭬਍†††異汢捩ഺ †††††††††††††䱃杯楓畭慬楴湯瑃⡬㬩਍†††††††††††††䍾潌卧浩汵瑡潩䍮汴⤨഻ †††††⼯ⴭ‭敭桴摯⁳景椠楮楴楬敺਍†††††瘠楯⁤†††††椠楮⡴千慨敲瑃⁬猪慨敲瑃⥬※਍†††††⼠⴯ⴭ爠湵䌠潌卧浩汵瑡潩䍮汴਍†††††瘠楯⁤†††††爠湵⤨※਍†††††⼠⴯ⴭ氠慯⁤楓畭慬楴湯䤠普⁯਍†††††瘠楯⁤†††††氠慯⡤㬩ഠ 素഻ഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†湩瑩慩楬敺琠敨挠慬獳਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠潌卧浩汵瑡潩䍮汴㨺湩瑩䌨桓牡䍥汴⨠桳牡䍥汴ഩ笊਍†琠楨⹳桳牡䍥汴猽慨敲瑃㭬਍†琠楨⹳潬呧卯杩慮⹬湩瑩猨慨敲瑃⥬഻ †桴獩氮杯潔楓湧污献瑥潌剴瑡⡥慅楓湧污潌剴瑡⥥഻紊਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼爠慥⁤慥氠杯†潴洠歡⁥畭楴猠杩慮獬਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠潌卧浩汵瑡潩䍮汴㨺潬摡⤨਍ൻ †湩⁴楳湧污楋摮楌瑳嵛഻ †潣䙭湵⹣瑓楲杮潔湉䅴牲祡䔨卡杩慮䭬湩䱤獩ⱴ楳湧污楋摮楌瑳㬩†ഠ †湩⁴潣湵㵴牁慲卹穩⡥楳湧污楋摮楌瑳㬩਍†映牯椨瑮椠〽椻挼畯瑮椻⬫笩†ഠ ††⼠爯湵䔠⁁潬⁧潴猠杩慮⁬਍†††桴獩氮杯潔楓湧污爮慥䵤瑵䱩杯潔楓湧污猨杩慮䭬湩䱤獩孴嵩㬩਍†素਍⁽†ഠഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†汣獡⁳潣獮牴捵潴⁲†਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䱃杯楓畭慬楴湯瑃㩬䌺潌卧浩汵瑡潩䍮汴⤨絻਍䱃杯楓畭慬楴湯瑃㩬縺䱃杯楓畭慬楴湯瑃⡬笩਍†搠汥瑥⁥敇側楯瑮牥琨楨⹳潬呧卯杩慮⥬഻紊਍
+//+------------------------------------------------------------------+
+//|                                                   CLogSimulationCtl.mqh |
+//|                                                         rkee.rkk |
+//|                                                                  |
+//+------------------------------------------------------------------+
+#property copyright "rkee.rkk"
+#property link      ""
+#property version   "1.00"
+
+#include "CHeader.mqh"
+#include "../share/CShareCtl.mqh"
+#include "log/CEaLogSignal.mqh"
+
+
+input string comment_ea_simulation_begin="-----------------------";
+input string EaSignalKindList="101,102";
+input double EaSignalFixLot=0;
+input double EaSignalLotRate=1;
+input string comment_ea_simulation_end="-----------------------";
+
+class CLogSimulationCtl
+  {
+      private:
+            CShareCtl      *shareCtl;
+            CEaLogSignal   logToSignal;
+      public:
+                           CLogSimulationCtl();
+                          ~CLogSimulationCtl();
+           //--- methods of initilize
+           void            init(CShareCtl *shareCtl); 
+           //--- run CLogSimulationCtl
+           void            run(); 
+           //--- load Simulation Info 
+           void            load(); 
+  };
+
+//+------------------------------------------------------------------+
+//|  initialize the class
+//+------------------------------------------------------------------+
+void CLogSimulationCtl::init(CShareCtl *shareCtl)
+{
+   this.shareCtl=shareCtl;
+   this.logToSignal.init(shareCtl);
+   this.logToSignal.setLotRate(EaSignalLotRate);
+}
+//+------------------------------------------------------------------+
+//|  read ea log  to make muti signals
+//+------------------------------------------------------------------+
+void CLogSimulationCtl::load()
+{
+   int signalKindList[];
+   comFunc.StringToIntArray(EaSignalKindList,signalKindList);   
+   int count=ArraySize(signalKindList);
+   for(int i=0;i<count;i++){   
+      //run EA log to signal 
+      this.logToSignal.readMutiLogToSignal(signalKindList[i]);
+   }
+}    
+
+//+------------------------------------------------------------------+
+//|  class constructor   
+//+------------------------------------------------------------------+
+CLogSimulationCtl::CLogSimulationCtl(){}
+CLogSimulationCtl::~CLogSimulationCtl(){
+   delete GetPointer(this.logToSignal);
+}

@@ -1,1 +1,32 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼††††††††††††††††††††††††††䌠效摡牥洮桱簠਍⼯⁼††††††††††††††††††††††††††††歲敥爮歫簠਍⼯⁼††††††††††††††††††††††††††††††††簠਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼漠摲牥琠慲敤猠慴畴⁳敤楦敮ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ‫਍搣晥湩⁥剔䑁彅呓呁单呟䅒䕄偟久䥄䝎†††⠠⤰††††††††††††⼯〠漺摲牥瀠湥楤杮眨敨⁮畦畴敲琠浩⁥牴摡⽥敢潦敲琠慲敤ഩ⌊敤楦敮吠䅒䕄卟䅔啔当剔䑁彅䕒䑁⁙††††ㄨ †††††††††††⼠ 㨱牯敤⁲敲摡⁹潴琠慲敤਍搣晥湩⁥剔䑁彅呓呁单呟䅒䕄†††††††⠠⤲††††††††††††⼯㈠漺摲牥琠慲敤戠来湩਍搣晥湩⁥剔䑁彅呓呁单䍟佌䕓剟䅅奄††††⠠⤳††††††††††††⼯㌠漺摲牥爠慥祤琠⁯汣獯൥⌊敤楦敮吠䅒䕄卟䅔啔当䱃协彅䅐呒剟䅅奄††㐨 †††††††††††⼠ 㨴牯敤⁲敲摡⁹潴挠潬敳瀠牡⁴਍搣晥湩⁥剔䑁彅呓呁单䍟佌䕓†††††††⠠⤵††††††††††††⼯㔠漺摲牥挠潬敳਍搣晥湩⁥剔䑁彅呓呁单䍟䕌剁†††††††⠠⤶††††††††††††⼯㘠漺摲牥挠敬牡挨敬牡戠⁹潭敤⥬਍搣晥湩⁥剔䑁彅呓呁单䕟剒剏†††††††⠠⤷††††††††††††⼯㜠漺摲牥琠慲敤攠牲牯挠浯൭⌊敤楦敮吠䅒䕄卟䅔啔当剅佒归偏久†††††㠨 †††††††††††⼠ 㨸牯敤⁲牴摡⁥牥潲⁲潴漠数⁮牯敤൲⌊敤楦敮吠䅒䕄卟䅔啔当剅佒归䱃协⁅††††㤨 †††††††††††⼠ 㨹牯敤⁲牴摡⁥牥潲⁲潴挠潬敳漠摲牥਍搣晥湩⁥剔䑁彅呓呁单䕟剒剏䍟佌䕓偟剁⁔†⠠〱 †††††††††††⼠ 〱漺摲牥琠慲敤攠牲牯琠⁯汣獯⁥慰瑲漠摲牥ഠഊഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†牯敤⁲牴摡⁥祴数਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭ഠ⌊敤楦敮吠䅒䕄呟偙彅䅍䭒呅††††††††〨 †††††††††††⼠ 㨰慍歲瑥䈠祵匮汥⁬牯敤൲⌊敤楦敮吠䅒䕄呟偙彅䥌䥍彔䕐䑎义⁇††††ㄨ †††††††††††⼠ 㨱畂⹹敓汬䰠浩瑩瀠湥楤杮漠摲牥਍搣晥湩⁥剔䑁彅奔䕐卟佔彐䕐䑎义⁇††††⠠⤲††††††††††††⼯㈠䈺祵匮汥⁬瑓灯瀠湥楤杮漠摲牥਍搣晥湩⁥剔䑁彅奔䕐卟佔彐䥌䥍⁔†††††⠠⤳††††††††††††⼯㌠唺潰⁮敲捡楨杮琠敨漠摲牥瀠楲散‬⁡数摮湩⁧畂⹹敓汬䰠浩瑩漠摲牥椠⁳汰捡摥愠⁴桴⁥瑓灯楌業⁴牰捩൥⌊敤楦敮吠䅒䕄呟偙彅䱃协彅奂†††††††㐨 †††††††††††⼠ 㨴牏敤⁲潴挠潬敳愠瀠獯瑩潩⁮祢愠⁮灯潰楳整漠敮਍搣晥湩⁥剔䑁彅奔䕐呟䵉彅䥌䥍⁔†††††⠠⤵††††††††††††⼯㔠䈺祵匮汥⁬楔敭䰠浩瑩瀠湥楤杮漠摲牥਍਍
+//+------------------------------------------------------------------+
+//|                                                      CHeader.mqh |
+//|                                                         rkee.rkk |
+//|                                                                  |
+//+------------------------------------------------------------------+
+
+//+------------------------------------------------------------------+
+//|  order trade status define 
+//+------------------------------------------------------------------+ 
+#define TRADE_STATUS_TRADE_PENDING       (0)                        // 0:order pending(when future time trade/before trade)
+#define TRADE_STATUS_TRADE_READY         (1)                        // 1:order ready to trade
+#define TRADE_STATUS_TRADE               (2)                        // 2:order trade begin
+#define TRADE_STATUS_CLOSE_READY         (3)                        // 3:order ready to close
+#define TRADE_STATUS_CLOSE_PART_READY    (4)                        // 4:order ready to close part 
+#define TRADE_STATUS_CLOSE               (5)                        // 5:order close
+#define TRADE_STATUS_CLEAR               (6)                        // 6:order clear(clear by model)
+#define TRADE_STATUS_ERROR               (7)                        // 7:order trade error comm
+#define TRADE_STATUS_ERROR_OPEN          (8)                        // 8:order trade error to open order
+#define TRADE_STATUS_ERROR_CLOSE         (9)                        // 9:order trade error to close order
+#define TRADE_STATUS_ERROR_CLOSE_PART    (10)                        // 10:order trade error to close part order 
+
+
+//+------------------------------------------------------------------+
+//|  order trade type
+//+------------------------------------------------------------------+ 
+#define TRADE_TYPE_MARKET                (0)                        // 0:Market Buy.Sell order
+#define TRADE_TYPE_LIMIT_PENDING         (1)                        // 1:Buy.Sell Limit pending order
+#define TRADE_TYPE_STOP_PENDING          (2)                        // 2:Buy.Sell Stop pending order
+#define TRADE_TYPE_STOP_LIMIT            (3)                        // 3:Upon reaching the order price, a pending Buy.Sell Limit order is placed at the StopLimit price
+#define TRADE_TYPE_CLOSE_BY              (4)                        // 4:Order to close a position by an opposite one
+#define TRADE_TYPE_TIME_LIMIT            (5)                        // 5:Buy.Sell Time Limit pending order
+

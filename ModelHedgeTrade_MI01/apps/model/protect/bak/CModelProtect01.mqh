@@ -1,1 +1,121 @@
-﻿⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼††††††††††††††††††††††††††䵃摯汥㄰洮桱簠਍⼯⁼†††††††††††††††††ർ⼊簯††††††††††††††††††††††ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⌊牰灯牥祴挠灯特杩瑨∠ഢ⌊牰灯牥祴氠湩⁫††∠瑨灴㩳⼯睷⹷煭㕬挮浯ഢ⌊牰灯牥祴瘠牥楳湯†∠⸱〰ഢഊ⌊湩汣摵⁥䜼湥牥捩䅜牲祡楌瑳洮桱ാഊ⌊湩汣摵⁥⸢⼮⸮猯慨敲䌯桓牡䍥汴洮桱ഢ⌊湩汣摵⁥⸢⼮䵃摯汥⹉煭≨਍਍汣獡⁳䵃摯汥牐瑯捥⁴਍ൻ ††瀠楲慶整ഺ ††††千慨敲瑃⩬††††††桳牡䍥汴഻ ††††䥃摮捩瑡牯桓牡⩥†††湩卤慨敲഻ ††††䅃牲祡楌瑳甼潬杮‾††汣慥䵲摯汥楌瑳഻ ††瀠扵楬㩣਍†††††††††††††††䵃摯汥牐瑯捥⡴㬩਍†††††††††††††††䍾潍敤偬潲整瑣⤨※਍††††潶摩†††††††††湩瑩䌨桓牡䍥汴⨠桳牡䍥汴㬩਍††††䅃牲祡楌瑳䌼潍敤䥬㸪‪敧䵴摯汥⡳㬩਍††††䥃摮捩瑡牯桓牡⩥†††敧䥴摮捩瑡牯桓牡⡥㬩਍††††潶摩†††††††††敲牦獥⡨㬩਍††††潤扵敬††††††††汣慥䡲摥敧潌⡴䵃摯汥⩉洠摯汥㬩਍††††湩⁴†††††††††汣慥䵲摯汥⡳㬩਍††††䡃摥敧片畯⩰†††††敧䡴摥敧片畯偰潯⡬㬩਍††††ഠ紊഻ ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†湩瑩慩楬敺琠敨挠慬獳਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍潶摩䌠潍敤偬潲整瑣㨺湩瑩䌨桓牡䍥汴⨠桳牡䍥汴笩਍†琠楨⹳桳牡䍥汴猽慨敲瑃㭬਍†琠楨⹳湩卤慨敲猽慨敲瑃⹬敧䥴摮捩瑡牯桓牡⡥㬩਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敧⁴潭敤⁬楬瑳਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䅃牲祡楌瑳䌼潍敤䥬㸪‪䵃摯汥牐瑯捥㩴机瑥潍敤獬⤨ൻ †敲畴湲琠楨⹳桳牡䍥汴朮瑥潍敤卬慨敲⤨朮瑥潍敤獬⤨഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼朠瑥椠摮捩瑡牯猠慨敲ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊湉楤慣潴卲慨敲‪䌠潍敤偬潲整瑣㨺敧䥴摮捩瑡牯桓牡⡥笩਍†爠瑥牵⁮桴獩椮摮桓牡㭥਍ൽഊ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ⼊簯†敧⁴湩楤慣潴⁲桳牡⁥਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍䡃摥敧片畯⩰†䵃摯汥牐瑯捥㩴机瑥效杤䝥潲灵潐汯⤨ൻ †敲畴湲琠楨⹳桳牡䍥汴朮瑥效杤卥慨敲⤨朮瑥效杤䝥潲灵潐汯⤨഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼爠晥敲桳瀠潲整瑣椠普൯⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ瘊楯⁤䵃摯汥牐瑯捥㩴爺晥敲桳瘨楯⥤ൻ †桴獩挮敬牡潍敤䱬獩⹴汃慥⡲㬩†ഠ紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼挠敬牡洠湩獵洠摯汥൳⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ搊畯汢⁥䵃摯汥牐瑯捥㩴挺敬牡效杤䱥瑯䌨潍敤䥬‪潭敤⥬ൻഊ †⼯䡃摥敧片畯⩰洠摯汥片畯㵰潭敤⹬敧䡴摥敧片畯⡰㬩਍†䌠效杤䝥潲灵‪潭敤䝬潲灵琽楨⹳敧䡴摥敧片畯偰潯⡬㬩਍†洠摯汥片畯⹰敳䕴捸灥䵴摯⡥牴敵㬩਍†洠摯汥片畯⹰敳䕴捸灥䵴摯汥⡳琦楨⹳汣慥䵲摯汥楌瑳㬩਍†椠瑮猠浹潢䥬摮硥洽摯汥朮瑥祓扭汯湉敤⡸㬩਍†䔠啎彍剏䕄归奔䕐琠灹㵥潭敤⹬敧呴慲敤祔数⤨഻ †晩琨灹㵥伽䑒剅呟偙彅䕓䱌笩਍†††祴数伽䑒剅呟偙彅啂㭙਍†素汥敳ൻ ††琠灹㵥剏䕄归奔䕐卟䱅㭌਍†素਍†搠畯汢⁥潬㵴潭敤⹬敧䱴瑯⤨※†਍†椠⡦潭敤䝬潲灵椮䡦摥敧祓扭汯潌⡴祳扭汯湉敤ⱸ祴数氬瑯⤩ൻ ††琠楨⹳汣慥䵲摯汥楌瑳䄮摤洨摯汥朮瑥潍敤䥬⡤⤩഻ ††洠摯汥片畯⹰敨杤佥摲牥⡳㬩਍†††敲畴湲氠瑯഻ †ൽ †敲畴湲〠഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼挠敬牡洠摯汥൳⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ椊瑮䌠潍敤偬潲整瑣㨺汣慥䵲摯汥⡳笩਍†⼠振敬牡洠摯汥਍†䌠牁慲䱹獩㱴䵃摯汥⩉‾潭敤䱬獩㵴桴獩献慨敲瑃⹬敧䵴摯汥桓牡⡥⸩敧䵴摯汥⡳㬩਍†椠瑮洠摯汥潃湵㵴潭敤䱬獩⹴潃湵⡴㬩਍†⼠振敬湡洠摯汥氠獩൴ †湩⁴汣慥䍲畯瑮〽഻ †潦⁲椨瑮椠㴠洠摯汥潃湵⵴㬱椠㸠〽㬠椠ⴭ ൻ ††䌠潍敤䥬⨠潭敤㭬†††਍†††晩洨摯汥楌瑳吮祲敇噴污敵椨洬摯汥⤩⁻††††††††††††ഠ ††††晩琨楨⹳汣慥䵲摯汥楌瑳䌮湯慴湩⡳潭敤⹬敧䵴摯汥摉⤨⤩ൻ †††††洠摯汥献瑥捁楴湯汆⡧挢敬牡楍畮䵳摯汥⹳汣慥䵲摯汥≳㬩਍††††††汣慥䍲畯瑮㴫潭敤⹬汣獯佥摲牥⡳㬩††††ഠ ††††ൽ ††素਍†素਍†爠瑥牵⁮汣慥䍲畯瑮഻紊਍਍⼯⴫ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭ⬭਍⼯⁼挠慬獳挠湯瑳畲瑣牯†ഠ⼊⬯ⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭⴭഫ䌊潍敤偬潲整瑣㨺䵃摯汥牐瑯捥⡴笩ൽ䌊潍敤偬潲整瑣㨺䍾潍敤偬潲整瑣⤨ൻ紊
+//+------------------------------------------------------------------+
+//|                                                     CModel01.mqh |
+//|                                   |
+//|                                             
+//+------------------------------------------------------------------+
+#property copyright ""
+#property link      "https://www.mql5.com"
+#property version   "1.00"
+
+#include <Generic\ArrayList.mqh>
+
+#include "../../share/CShareCtl.mqh"
+#include "../CModelI.mqh"
+
+class CModelProtect 
+{
+      private:
+         CShareCtl*            shareCtl;
+         CIndicatorShare*      indShare;
+         CArrayList<ulong>     clearModelList;
+      public:
+                              CModelProtect();
+                              ~CModelProtect(); 
+        void                  init(CShareCtl *shareCtl);
+        CArrayList<CModelI*>* getModels();
+        CIndicatorShare*      getIndicatorShare();
+        void                  refresh();
+        double                clearHedgeLot(CModelI* model);
+        int                   clearModels();
+        CHedgeGroup*          getHedgeGroupPool();
+         
+};
+  
+//+------------------------------------------------------------------+
+//|  initialize the class
+//+------------------------------------------------------------------+
+void CModelProtect::init(CShareCtl *shareCtl){
+   this.shareCtl=shareCtl;
+   this.indShare=shareCtl.getIndicatorShare();
+}
+
+//+------------------------------------------------------------------+
+//|  get model list
+//+------------------------------------------------------------------+
+CArrayList<CModelI*>* CModelProtect::getModels(){
+   return this.shareCtl.getModelShare().getModels();
+}
+
+//+------------------------------------------------------------------+
+//|  get indicator share 
+//+------------------------------------------------------------------+
+CIndicatorShare*  CModelProtect::getIndicatorShare(){
+   return this.indShare;
+}
+
+//+------------------------------------------------------------------+
+//|  get indicator share 
+//+------------------------------------------------------------------+
+CHedgeGroup*  CModelProtect::getHedgeGroupPool(){
+   return this.shareCtl.getHedgeShare().getHedgeGroupPool();
+}
+
+//+------------------------------------------------------------------+
+//|  refresh protect info
+//+------------------------------------------------------------------+
+void CModelProtect::refresh(void){
+   this.clearModelList.Clear();   
+}
+
+//+------------------------------------------------------------------+
+//|  clear minus models
+//+------------------------------------------------------------------+
+double CModelProtect::clearHedgeLot(CModelI* model){
+
+   //CHedgeGroup* modelGroup=model.getHedgeGroup();
+   CHedgeGroup* modelGroup=this.getHedgeGroupPool();
+   modelGroup.setExceptMode(true);
+   modelGroup.setExceptModels(&this.clearModelList);
+   int symbolIndex=model.getSymbolIndex();
+   ENUM_ORDER_TYPE type=model.getTradeType();
+   if(type==ORDER_TYPE_SELL){
+      type=ORDER_TYPE_BUY;
+   }else{
+      type=ORDER_TYPE_SELL;
+   }
+   double lot=model.getLot();   
+   if(modelGroup.ifHedgeSymbolLot(symbolIndex,type,lot)){
+      this.clearModelList.Add(model.getModelId());
+      modelGroup.hedgeOrders();
+      return lot;
+   }
+   return 0;
+}
+
+//+------------------------------------------------------------------+
+//|  clear models
+//+------------------------------------------------------------------+
+int CModelProtect::clearModels(){
+   //clear model
+   CArrayList<CModelI*> modelList=this.shareCtl.getModelShare().getModels();
+   int modelCount=modelList.Count();
+   //clean model list
+   int clearCount=0;
+   for (int i = modelCount-1; i >=0 ; i--) {
+      CModelI *model;      
+      if(modelList.TryGetValue(i,model)){                          
+         if(this.clearModelList.Contains(model.getModelId())){
+            model.setActionFlg("clearMinusModels.clearModels");
+            clearCount+=model.closeOrders();         
+         }
+      }
+   }
+   return clearCount;
+}
+
+//+------------------------------------------------------------------+
+//|  class constructor   
+//+------------------------------------------------------------------+
+CModelProtect::CModelProtect(){}
+CModelProtect::~CModelProtect(){
+}
