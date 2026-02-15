@@ -7,11 +7,14 @@
 #property version   "1.00"
 
 #include "database\CDatabase.mqh"
+#include "database\CRunnerDbContext.mqh"
+#include "database\enums.mqh"
 
 class CClientCtl
   {
 private:
       CDatabase      db;
+      CRunnerDbContext featureDbCtx;
 public:
                      CClientCtl();
                     ~CClientCtl();
@@ -22,6 +25,10 @@ public:
      
      //--- create table
      void            initTables();
+
+     //--- feature01 db context
+     bool            initFeatureDbContext(ERunnerMode mode);
+     CRunnerDbContext* getFeatureDbContext();
       
   };
 
@@ -82,6 +89,21 @@ void  CClientCtl::initTables(){
       }    
     }
 
+}
+
+
+//+------------------------------------------------------------------+
+//|  init feature01 db context
+//+------------------------------------------------------------------+
+bool CClientCtl::initFeatureDbContext(ERunnerMode mode){
+   return this.featureDbCtx.Init(mode);
+}
+
+//+------------------------------------------------------------------+
+//|  get feature01 db context
+//+------------------------------------------------------------------+
+CRunnerDbContext* CClientCtl::getFeatureDbContext(){
+   return &this.featureDbCtx;
 }
 
 //+------------------------------------------------------------------+
