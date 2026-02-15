@@ -11,6 +11,10 @@
 
 class CDbConnFactory {
    public:
+      //+------------------------------------------------------------------+
+      //|  按驱动类型创建数据库连接对象
+      //|  @driver    数据库驱动类型
+      //+------------------------------------------------------------------+
       static IDbConn* Create(EDbDriver driver){
          switch(driver){
             case DB_DRIVER_SQLITE:
