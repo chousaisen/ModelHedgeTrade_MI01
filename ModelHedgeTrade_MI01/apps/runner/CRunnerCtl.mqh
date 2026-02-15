@@ -77,18 +77,18 @@ void CRunnerCtl::run(void)
 
    //feature01 db association flow(Put/Pull/Close)
    if(this.featureSyncEnabled){
-      CHedgeSyncService *sync=this.clientCtl.getFeatureDbContext()->Sync();
+      CHedgeSyncService *sync=this.clientCtl.getFeatureDbContext().Sync();
       if(sync!=NULL && CheckPointer(sync)!=POINTER_INVALID){
          if(FEATURE_DB_RUNNER_MODE==RUNNER_MASTER_ONLY || FEATURE_DB_RUNNER_MODE==RUNNER_HYBRID){
-            sync->SyncPutRiskToProtect(DB_MASTER1,DB_SLAVE1,FEATURE_MASTER_MODEL_KIND,FEATURE_SLAVE_MODEL_KIND);
-            sync->SyncPullProtectToRisk(DB_SLAVE1,DB_MASTER1,FEATURE_MASTER_MODEL_KIND,FEATURE_SLAVE_MODEL_KIND);
-            sync->SyncCloseHedge(DB_SLAVE1,FEATURE_SLAVE_MODEL_KIND,FEATURE_CLOSE_STATUS);
+            sync.SyncPutRiskToProtect(DB_MASTER1,DB_SLAVE1,FEATURE_MASTER_MODEL_KIND,FEATURE_SLAVE_MODEL_KIND);
+            sync.SyncPullProtectToRisk(DB_SLAVE1,DB_MASTER1,FEATURE_MASTER_MODEL_KIND,FEATURE_SLAVE_MODEL_KIND);
+            sync.SyncCloseHedge(DB_SLAVE1,FEATURE_SLAVE_MODEL_KIND,FEATURE_CLOSE_STATUS);
          }
 
          if(FEATURE_DB_RUNNER_MODE==RUNNER_SLAVE_ONLY || FEATURE_DB_RUNNER_MODE==RUNNER_HYBRID){
-            sync->SyncPutRiskToProtect(DB_MASTER1,DB_SLAVE2,FEATURE_MASTER_MODEL_KIND,FEATURE_SLAVE_MODEL_KIND);
-            sync->SyncPullProtectToRisk(DB_SLAVE2,DB_MASTER1,FEATURE_MASTER_MODEL_KIND,FEATURE_SLAVE_MODEL_KIND);
-            sync->SyncCloseHedge(DB_SLAVE2,FEATURE_SLAVE_MODEL_KIND,FEATURE_CLOSE_STATUS);
+            sync.SyncPutRiskToProtect(DB_MASTER1,DB_SLAVE2,FEATURE_MASTER_MODEL_KIND,FEATURE_SLAVE_MODEL_KIND);
+            sync.SyncPullProtectToRisk(DB_SLAVE2,DB_MASTER1,FEATURE_MASTER_MODEL_KIND,FEATURE_SLAVE_MODEL_KIND);
+            sync.SyncCloseHedge(DB_SLAVE2,FEATURE_SLAVE_MODEL_KIND,FEATURE_CLOSE_STATUS);
          }
       }
    }
