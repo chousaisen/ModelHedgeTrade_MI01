@@ -1,4 +1,4 @@
-//+------------------------------------------------------------------+
+﻿//+------------------------------------------------------------------+
 //|                                                   CDatabase.mqh  |
 //|                                                         rkee.rkk |
 //+------------------------------------------------------------------+
@@ -13,51 +13,27 @@ class CDatabase
 private:
      int      dbConnect;
 public:
-     //+------------------------------------------------------------------+
-     //|  构造函数
-     //+------------------------------------------------------------------+
                      CDatabase();
-     //+------------------------------------------------------------------+
-     //|  析构函数
-     //+------------------------------------------------------------------+
                     ~CDatabase();
-     //+------------------------------------------------------------------+
-     //|  初始化数据库连接
-     //+------------------------------------------------------------------+
      void            init();
-     //+------------------------------------------------------------------+
-     //|  保存数据到数据库
-     //|  @tableName    目标表名
-     //|  @dataList     字段和数据列表
-     //+------------------------------------------------------------------+
      void            saveData(string tableName, string dataList);
-     //+------------------------------------------------------------------+
-     //|  获取数据库连接句柄
-     //+------------------------------------------------------------------+
      int             getConnect(){return this.dbConnect;}
   };
 
-//+------------------------------------------------------------------+
-//|  初始化数据库连接
-//+------------------------------------------------------------------+
 void CDatabase::init(){
     this.dbConnect = DatabaseOpen(DEBUG_DB_NAME, DATABASE_OPEN_READWRITE | DATABASE_OPEN_CREATE);
+    if (this.dbConnect != INVALID_HANDLE) {
+        DatabaseExecute(this.dbConnect, "PRAGMA journal_mode=WAL;");
+        DatabaseExecute(this.dbConnect, "PRAGMA synchronous=NORMAL;");
+        DatabaseExecute(this.dbConnect, "PRAGMA busy_timeout=3000;");
+    }
     if (this.dbConnect == INVALID_HANDLE) {
-        Print("无法打开或创建数据库文件");
+        Print("Failed to open or create database file");
         return;
     }
 }
 
-//+------------------------------------------------------------------+
-//|  保存数据到数据库
-//|  @tableName    目标表名
-//|  @dataList     字段和数据列表
-//+------------------------------------------------------------------+
 void CDatabase::saveData(string tableName, string dataList) {
-    //if(!DEBUG_DB_SAVE)return;
-    //tableName+=DEBUG_DB_TABLE_IDX;
-
-    // 1. 检查表是否存在
     string checkTableSql = "SELECT name FROM sqlite_master WHERE type='table' AND name='" + tableName + "';";
     int request = DatabasePrepare(this.dbConnect, checkTableSql);
     bool tableExists = false;
@@ -69,7 +45,6 @@ void CDatabase::saveData(string tableName, string dataList) {
         DatabaseFinalize(request);
     }
 
-    // 2. 如果表不存在，创建表
     if (!tableExists) {
         string fieldsSql = "";
         int pos = 0;
@@ -105,14 +80,13 @@ void CDatabase::saveData(string tableName, string dataList) {
 
         string createTableSql = "CREATE TABLE " + tableName + " (" + fieldsSql + ");";
         if (!DatabaseExecute(this.dbConnect, createTableSql)) {
-            Print("创建表失败: ", GetLastError());
+            Print("Create table failed: ", GetLastError());
             DatabaseClose(this.dbConnect);
             return;
         }
-        Print("表 ", tableName, " 创建成功。");
+        Print("Table created: ", tableName);
     }
 
-    // 3. 插入数据
     string insertSql = "INSERT INTO " + tableName + " (";
     string valuesSql = "VALUES (";
 
@@ -159,22 +133,15 @@ void CDatabase::saveData(string tableName, string dataList) {
     insertSql += ") " + valuesSql + ");";
 
     if (!DatabaseExecute(this.dbConnect, insertSql)) {
-        Print("插入数据失败: ", GetLastError());
+        Print("Insert data failed: ", GetLastError());
         DatabaseClose(this.dbConnect);
         return;
     }
-    Print("数据插入成功。");
+    Print("Data inserted successfully.");
 }
 
-//+------------------------------------------------------------------+
-//|  构造函数
-//+------------------------------------------------------------------+
 CDatabase::CDatabase(){}
-
-//+------------------------------------------------------------------+
-//|  析构函数
-//+------------------------------------------------------------------+
 CDatabase::~CDatabase(){
     DatabaseClose(this.dbConnect);
-    Print("数据库操作完成。");
+    Print("Database operation completed.");
 }
