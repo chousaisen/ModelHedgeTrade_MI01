@@ -28,6 +28,11 @@ class CSqliteConn : public IDbConn {
       bool Open(string dbName){
          this.m_dbName=dbName;
          this.m_handle=DatabaseOpen(this.m_dbName, DATABASE_OPEN_READWRITE | DATABASE_OPEN_CREATE);
+         if(this.m_handle!=INVALID_HANDLE){
+            DatabaseExecute(this.m_handle, "PRAGMA journal_mode=WAL;");
+            DatabaseExecute(this.m_handle, "PRAGMA synchronous=NORMAL;");
+            DatabaseExecute(this.m_handle, "PRAGMA busy_timeout=3000;");
+         }
          return this.m_handle!=INVALID_HANDLE;
       }
 
